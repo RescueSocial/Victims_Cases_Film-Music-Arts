@@ -3,10 +3,10 @@ Victims Cases in Film/Music/Arts - Database DRAFT
 
 58 cases so far - partially filled out
 
-Filed Cases
-Related Cases
-Not Litigated
-Attached
+Filed Cases (Lawsuits)<br>
+Related Cases (Both Criminal and Civil)<br>
+Not Litigated<br>
+Attached<br>
 
 Example Below -
 

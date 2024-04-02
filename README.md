@@ -20,7 +20,7 @@ This year, we will be improving this with data analysis and research, as well as
 <br>
 <br><b>This is highly useful for people who need to see Conflicts of Interests as well as to Encourage Researchers from anywhere to study this more in a Fair and Just way that provides Guidance.</b>
 
-<br><i><b>Legislation improvements are needed, and having research of the common problems of cases over Decades that prevent people in the Visual & Performing Arts from having a just legal system either outside or inside of court, related to a mixing of tactics that are not helpful to disasterous.
+<i><b>Legislation improvements are needed, and having research of the common problems of cases over Decades that prevent people in the Visual & Performing Arts from having a just legal system either outside or inside of court, related to a mixing of tactics that are not helpful to disasterous.
 <br>This is to move this sector into research away from sporadic updates based on the issues of the time.</i></b>
 <br><br>
 <i>Watching Videos Analysis that Helps Victims/Survivors and Refutes Enablement at Eat Predators LLC is helpful: https://www.youtube.com/@eatpredators</i>

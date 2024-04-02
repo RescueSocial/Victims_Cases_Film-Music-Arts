@@ -1,5 +1,5 @@
 # Victims_Cases_Film-Music-Arts
-<h3>Victims Cases in Film/Music/Arts - Database Draft, start</h3>
+<h3>Victims Cases in Film/Music/Arts - Database Draft</h3>
 
 58 cases so far - partially filled out
 

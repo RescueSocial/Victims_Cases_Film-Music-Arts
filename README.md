@@ -9,11 +9,11 @@ Not Litigated<br>
 Attached<br>
 
 Example Below -
-
+<b>
 Status	State	Year	Moving Party	Responding Party	Moving Actions	Responding Actions	Investigators Victim	Investigators Perpetrator	Lawyers Responding	Lawyers Moving	Arts Business Areas	Responding Arts Area	Moving Arts Area	Experts Victim	Experts Perpetrators	Videos	Links											
 <br><br>
 Investigated	California	1954	Joe DiMaggio	Marilyn Monroe	Survielled, Break-In, Strong Arming			Barney Rudisky			Film, Sports, Fixers					<br>	https://www.vanityfair.com/hollywood/2003/04/robert-harrison-confidential-magazine		
-
+</b>
 <br>									
 
 This year, we will be improving this with data analysis and research, as well as knowledge graphs for general cases... will increase the information accessible.

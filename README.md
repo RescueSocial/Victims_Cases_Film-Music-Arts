@@ -22,5 +22,5 @@ This year, we will be improving this with data analysis and research, as well as
 
 <br><i>Legislation improvements are needed, and having research of the common problems of cases over decades that prevent people in the Visual & Performing Arts from having a just legal system either outside or inside of court, related to a mixing of tactics that are not helpful to disasterous.
 <br>This is to move this sector into research away from sporadic updates based on the issues of the time.</i>
-<br>
+<br><br>
 <i>Watching Videos Analysis that helps Victims/Survivors and Refutes Enablement at Eat Predators LLC is helpful - https://www.youtube.com/@eatpredators</i>

@@ -18,7 +18,7 @@ Investigated	California	1954	Joe DiMaggio	Marilyn Monroe	Survielled, Break-In, S
 
 This year, we will be improving this with data analysis and research, as well as knowledge graphs for general cases... will increase the information accessible.
 <br>
-<br>This is highly useful for people who need to see conflicts of interests as well as to encourage researchers from anywhere to study this more in a fair and just way that provides guidance.
+<br><b>This is highly useful for people who need to see Conflicts of Interests as well as to encourage researchers from anywhere to study this more in a fair and just way that provides guidance.</b>
 
-<br><i>Legislation improvements are needed, and having research of the common problems of cases over decades that prevent people in the Visual & Performing Arts from having a just legal system either outside or inside of court, related to a mixing of tactics is disasterous.
+<br><i>Legislation improvements are needed, and having research of the common problems of cases over decades that prevent people in the Visual & Performing Arts from having a just legal system either outside or inside of court, related to a mixing of tactics is not helpful to disasterous.
 <br>This is to move this sector into research away from sporadic updates based on the issues of the time.</i>

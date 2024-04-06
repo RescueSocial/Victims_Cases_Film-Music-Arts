@@ -16,9 +16,9 @@ Status	State	Year	Moving Party	Responding Party	Moving Actions	Responding Action
 </b>
 <br>
 This year, we will be improving this with data analysis and research, as well as knowledge graphs for general cases... will increase the information accessible.
-<br>
-<center><img src="https://github.com/RescueSocialTech/Victims_Cases_Film-Music-Arts/blob/main/z-film-banner.jpg" width="550" height="200"></center>	
-<br>
+<br><br>
+<center><img src="https://github.com/RescueSocialTech/Victims_Cases_Film-Music-Arts/blob/main/z-film-banner.jpg" width="600" height="200"></center>	
+
 <br><b>This is highly useful for people who need to see Conflicts of Interests as well as to Encourage Researchers from anywhere to study this more in a Fair and Just way that provides Guidance.</b>
 
 <i><b>*Legislation improvements are needed, and having research of the common problems of cases over Decades that prevent people in the Visual & Performing Arts from having a just legal system either outside or inside of court, related to a mixing of tactics that are not helpful to disastrous.

@@ -3,10 +3,10 @@
 
 65 cases so far - partially filled out
 
-Filed Cases (Lawsuits)<br>
-Related Cases (Both Criminal and Civil)<br>
-Not Litigated<br>
-Attached<br>
+- Filed Cases (Lawsuits)<br>
+- Related Cases (Both Criminal and Civil)<br>
+- Not Litigated<br>
+- Similar <br>
 
 Example Below -<br>
 <b>

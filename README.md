@@ -14,9 +14,11 @@ Status	State	Year	Moving Party	Responding Party	Moving Actions	Responding Action
 <br>
 - Investigated -	California -	1954 -	<i>Joe DiMaggio	Marilyn Monroe</i> -	Surveilled, Break-In, Strong Arming	- 	Barney Rudisky	-		Film, Sports, Fixers					<br>	https://www.vanityfair.com/hollywood/2003/04/robert-harrison-confidential-magazine		
 </b>
-<br>									
+<br>
+		![pngtree-international-film-festival-black-banner-poster-image_195193](https://github.com/RescueSocialTech/Victims_Cases_Film-Music-Arts/assets/55333723/1e70334d-80e8-42df-abc9-46211c5ca00d)					
 
 This year, we will be improving this with data analysis and research, as well as knowledge graphs for general cases... will increase the information accessible.
+
 <br>
 <br><b>This is highly useful for people who need to see Conflicts of Interests as well as to Encourage Researchers from anywhere to study this more in a Fair and Just way that provides Guidance.</b>
 

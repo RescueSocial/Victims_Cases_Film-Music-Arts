@@ -1,7 +1,7 @@
 # Victims_Cases_Film-Music-Arts
 <h3>Victims Cases in Film/Music/Arts - Database Draft</h3>
 
-58 cases so far - partially filled out
+65 cases so far - partially filled out
 
 Filed Cases (Lawsuits)<br>
 Related Cases (Both Criminal and Civil)<br>
@@ -22,5 +22,8 @@ This year, we will be improving this with data analysis and research, as well as
 
 <i><b>Legislation improvements are needed, and having research of the common problems of cases over Decades that prevent people in the Visual & Performing Arts from having a just legal system either outside or inside of court, related to a mixing of tactics that are not helpful to disastrous.
 <br>This is to move this sector into research away from sporadic updates based on the issues of the time.</i></b>
+<br>
+NOTE: Moving Parties and Responding Parties does not necessarily declare finiteness regarding innocence or allegations. People are advised to protect themselves legally and at this time, due to lacking research available, there may be patterns on moving/responding.
+
 <br><br>
 <i>Watching Videos Analysis that Helps Victims/Survivors and Refutes Enablement at Eat Predators LLC is helpful: https://www.youtube.com/@eatpredators</i>

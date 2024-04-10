@@ -1,7 +1,7 @@
 # Victims_Cases_Film-Music-Arts
 <h3>Victims Cases in Film/Music/Arts - Database Draft</h3>
 
-65 cases so far - partially filled out
+75 cases so far - partially filled out
 
 - Filed Cases (Lawsuits)<br>
 - Related Cases (Both Criminal and Civil)<br>
@@ -14,6 +14,7 @@ Status	State	Year	Moving Party	Responding Party	Moving Actions	Responding Action
 <br>
 - Investigated -	California -	1954 -	<i>Joe DiMaggio	Marilyn Monroe</i> -	Surveilled, Break-In, Strong Arming	- 	Barney Rudisky	-		Film, Sports, Fixers					<br>	https://www.vanityfair.com/hollywood/2003/04/robert-harrison-confidential-magazine		
 </b>
+<br><i>Example: Joe DiMaggio used a private eye to surveil and strong-arm Marilyn Monroe as divorce granted… “LAPD investigated a foiled burglary and, without suspects, the case faded. Sold the “wrong-door raid” story to Confidential magazine, where it appeared in the September 1955 issue… California state senator Fred Kraft… cited the incident as an example of “strong-arm” tactics by private eyes in the service of the magazine.” By 1978..</i>
 <br>
 This year, we will be improving this with data analysis and research, as well as knowledge graphs for general cases... will increase the information accessible.
 <br>

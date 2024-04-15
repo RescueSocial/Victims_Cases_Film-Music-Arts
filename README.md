@@ -1,7 +1,7 @@
 # Victims_Cases_Film-Music-Arts
 <h3>Victims Cases in Film/Music/Arts - Database Draft</h3>
 
-75 cases so far - partially filled out
+78 cases so far - partially filled out
 
 - Filed Cases (Lawsuits)<br>
 - Related Cases (Both Criminal and Civil)<br>
@@ -16,7 +16,7 @@ Status	State	Year	Moving Party	Responding Party	Moving Actions	Responding Action
 </b>
 <i>Example: Joe DiMaggio used a private eye to surveil and strong-arm Marilyn Monroe as divorce granted… “LAPD investigated a foiled burglary and, without suspects, the case faded. Sold the “wrong-door raid” story to Confidential magazine, where it appeared in the September 1955 issue… California state senator Fred Kraft… cited the incident as an example of “strong-arm” tactics by private eyes in the service of the magazine.” By 1978..</i><br>
 <br>
-This year, we will be improving this with data analysis and research, as well as knowledge graphs for general cases... will increase the information accessible.
+The cases are organized for prevention importance and age. This year, we will be improving this with data analysis and research, as well as knowledge graphs for general cases... will increase the information accessible.
 <br>
 <br><b>This is highly useful for people who need to see Conflicts of Interests as well as to Encourage Researchers from anywhere to study this more in a Fair and Just way that provides Guidance.</b><br><br>
 

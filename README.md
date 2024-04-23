@@ -1,7 +1,7 @@
 # Victims_Cases_Film-Music-Arts
 <h3>Victims Cases in Film/Music/Arts - Database Draft</h3>
 
-86 cases so far - partially filled out
+92 cases so far - partially filled out
 
 - Filed Cases (Lawsuits)<br>
 - Related Cases (Both Criminal and Civil)<br>

@@ -28,6 +28,7 @@ Status	State	Year	Moving Party	Responding Party	Moving Actions	Responding Action
 - <i>"The Price of LA" pilot TV show for BUZZ is an example speaking with a witness while at a nightclub:</i>
 <br>[Watch the video](https://vimeo.com/311363928)
 - <i>Watching Videos Analysis that Helps Victims/Survivors and Refutes Enablement at Eat Predators Inc is helpful: https://www.youtube.com/@eatpredators</i>
+- The Surprise Witness LLC on a P Diddy's Fixer/Investigator: https://www.youtube.com/watch?v=qr3zYt5Ae-s
 
 It's important for correct and accessible records in these investigations. Some interesting points when studying enablement, which can be profitable for enablers, is that Witness Dennis Davern and 700 people petitioned to re-open the investigation about Natalie Wood: https://www.cbsnews.com/news/natalie-wood-death-in-dark-water
 - 41 Affidavits were collected for a dialogue coach perpetrator at Nickelodeon that harmed actors. Transcriptions and Records were obtained - https://stylecaster.com/lists/brian-peck-court-documents

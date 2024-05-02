@@ -28,7 +28,6 @@ The cases are organized for prevention importance and years.
 <br><br>
 - "The Price of LA" pilot TV show for BUZZ is an example speaking to a witness while at a nightclub
 [![Watch the video](https://img.youtube.com/vi/2Ie2OcADm30/maxresdefault.jpg)](https://youtu.be/2Ie2OcADm30?si=XOCxuQFk82QGvhRS)
-<br>
 - <i>Watching Videos Analysis that Helps Victims/Survivors and Refutes Enablement at Eat Predators is helpful: https://www.youtube.com/@eatpredators</i>
 
 <i>This is a draft which is improving... NOTE: Moving Parties and Responding Parties does not necessarily declare absoluteness regarding innocence or allegations. People are advised to protect themselves legally and at this time, due to lacking research available, there may be patterns on moving/responding.</i>

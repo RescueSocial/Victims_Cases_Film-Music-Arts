@@ -27,7 +27,7 @@ The cases are organized for prevention importance and years.
 <br>This is to move this sector into research away from sporadic updates based on the issues of the time.</i></b>
 <br>
 This pilot TV show for BUZZ
-[![Watch the video](https://img.youtube.com/vi/T-D1KVIuvjA/maxresdefault.jpg)](https://youtu.be/2Ie2OcADm30?si=XOCxuQFk82QGvhRS))
+[![Watch the video](https://img.youtube.com/vi/2Ie2OcADm30/maxresdefault.jpg)](https://youtu.be/2Ie2OcADm30?si=XOCxuQFk82QGvhRS))
 <br>
 <i>Watching Videos Analysis that Helps Victims/Survivors and Refutes Enablement at Eat Predators is helpful: https://www.youtube.com/@eatpredators</i>
 

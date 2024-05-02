@@ -31,7 +31,7 @@ Status	State	Year	Moving Party	Responding Party	Moving Actions	Responding Action
 
 It's important for correct and accessible records in these investigations. Some interesting points when studying enablement, which can be profitable for enablers, is that Witness Dennis Davern and 700 people petitioned to re-open the investigation about Natalie Wood: https://www.cbsnews.com/news/natalie-wood-death-in-dark-water
 - 41 Affidavits were collected for a dialogue coach perpetrator at Nickelodeon that harmed actors. Transcriptions and Records were obtained - https://stylecaster.com/lists/brian-peck-court-documents
-- <i>The Surprise Witness LLC on a P Diddy's Fixer/Investigator: [Watch the video](https://www.youtube.com/watch?v=qr3zYt5Ae-s)</i>
+- <i>The Surprise Witness LLC on P Diddy's Fixer/Investigator: [Watch the video](https://www.youtube.com/watch?v=qr3zYt5Ae-s)</i>
 
 <i>NOTE: Moving Parties and Responding Parties does not necessarily declare absoluteness regarding innocence or allegations. People are advised to protect themselves legally and at this time, due to lacking research available, there may be patterns on moving/responding. These documents are improving.</i>
 <br>This year, we will be improving this with data analysis and research, as well as knowledge graphs for general cases... will increase the information accessible.

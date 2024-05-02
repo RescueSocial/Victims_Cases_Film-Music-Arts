@@ -14,7 +14,8 @@ Status	State	Year	Moving Party	Responding Party	Moving Actions	Responding Action
 <br>
 - Investigated -	California -	1954 -	<i>Joe DiMaggio	Marilyn Monroe</i> -	Surveilled, Break-In, Strong Arming	- 	Barney Rudisky	-		Film, Sports, Fixers					<br>	https://www.vanityfair.com/hollywood/2003/04/robert-harrison-confidential-magazine		
 </b>
-<i>Example: Joe DiMaggio used a private eye to surveil and strong-arm Marilyn Monroe as divorce granted… “LAPD investigated a foiled burglary and, without suspects, the case faded. Sold the “wrong-door raid” story to Confidential magazine, where it appeared in the September 1955 issue… California state senator Fred Kraft… cited the incident as an example of <b>“strong-arm” tactics</b> by private eyes in the service of the magazine.” By 1978..</i><br>
+<i>Example: Joe DiMaggio used a private eye to surveil and strong-arm Marilyn Monroe as divorce granted… “LAPD investigated a foiled burglary and, without suspects, the case faded. Sold the “wrong-door raid” story to Confidential magazine, where it appeared in the September 1955 issue…
+<br>California state senator Fred Kraft… cited the incident as an example of <b>“strong-arm” tactics</b> by private eyes in the service of the magazine.” By 1978..</i><br>
 <br><b>This is highly useful for people who need to see Conflicts of Interests as well as to Encourage Researchers from anywhere to study this more in a Fair and Just way that provides Guidance.</b>
 <br>*<i>The Cases</i> are organized for Prevention Importance and years.
 <br><br>

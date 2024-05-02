@@ -18,9 +18,6 @@ Status	State	Year	Moving Party	Responding Party	Moving Actions	Responding Action
 <br>
 The cases are organized for prevention importance and years.
 <br><b>This is highly useful for people who need to see Conflicts of Interests as well as to Encourage Researchers from anywhere to study this more in a Fair and Just way that provides Guidance.</b><br><br>
-<br>This year, we will be improving this with data analysis and research, as well as knowledge graphs for general cases... will increase the information accessible.
-<br>
-
 <center><img src="https://github.com/RescueSocialTech/Victims_Cases_Film-Music-Arts/blob/main/z-film-banner.jpg" width="600" height="100"></center>	
 
 <i><b>*Legislation Improvements are needed, and having research of the common problems of Cases over Decades that prevent people in the Visual & Performing Arts from having a just legal system either outside or inside of court, related to a mixing of tactics that are not helpful to disastrous.
@@ -34,3 +31,4 @@ It's important for correct and accessible records in these investigations. Some 
 - 41 Affidavits were collected for a dialogue coach perpetrator at Nickelodeon that harmed actors. Transcription and Records were obtained - https://stylecaster.com/lists/brian-peck-court-documents
 
 <i>NOTE: Moving Parties and Responding Parties does not necessarily declare absoluteness regarding innocence or allegations. People are advised to protect themselves legally and at this time, due to lacking research available, there may be patterns on moving/responding. These documents are improving.</i>
+<br>This year, we will be improving this with data analysis and research, as well as knowledge graphs for general cases... will increase the information accessible.

@@ -26,7 +26,9 @@ The cases are organized for prevention importance and years.
 <i><b>*Legislation improvements are needed, and having research of the common problems of cases over Decades that prevent people in the Visual & Performing Arts from having a just legal system either outside or inside of court, related to a mixing of tactics that are not helpful to disastrous.
 <br>This is to move this sector into research away from sporadic updates based on the issues of the time.</i></b>
 <br>
+This pilot TV show for BUZZ
+[![Watch the video](https://img.youtube.com/vi/T-D1KVIuvjA/maxresdefault.jpg)](https://youtu.be/2Ie2OcADm30?si=XOCxuQFk82QGvhRS))
 <br>
-<i>Watching Videos Analysis that Helps Victims/Survivors and Refutes Enablement at Eat Predators LLC is helpful: https://www.youtube.com/@eatpredators</i>
+<i>Watching Videos Analysis that Helps Victims/Survivors and Refutes Enablement at Eat Predators is helpful: https://www.youtube.com/@eatpredators</i>
 
 <i>This is a draft which is improving... NOTE: Moving Parties and Responding Parties does not necessarily declare absoluteness regarding innocence or allegations. People are advised to protect themselves legally and at this time, due to lacking research available, there may be patterns on moving/responding.</i>

@@ -14,9 +14,9 @@ Status	State	Year	Moving Party	Responding Party	Moving Actions	Responding Action
 <br>
 - Investigated -	California -	1954 -	<i>Joe DiMaggio	Marilyn Monroe</i> -	Surveilled, Break-In, Strong Arming	- 	Barney Rudisky	-		Film, Sports, Fixers					<br>	https://www.vanityfair.com/hollywood/2003/04/robert-harrison-confidential-magazine		
 </b>
-<i>Example: Joe DiMaggio used a private eye to surveil and strong-arm Marilyn Monroe as divorce granted… “LAPD investigated a foiled burglary and, without suspects, the case faded. Sold the “wrong-door raid” story to Confidential magazine, where it appeared in the September 1955 issue… California state senator Fred Kraft… cited the incident as an example of “strong-arm” tactics by private eyes in the service of the magazine.” By 1978..</i><br>
+<i>Example: Joe DiMaggio used a private eye to surveil and strong-arm Marilyn Monroe as divorce granted… <br> “LAPD investigated a foiled burglary and, without suspects, the case faded. Sold the “wrong-door raid” story to Confidential magazine, where it appeared in the September 1955 issue… California state senator Fred Kraft… cited the incident as an example of “strong-arm” tactics by private eyes in the service of the magazine.” By 1978..</i><br>
 <br><b>This is highly useful for people who need to see Conflicts of Interests as well as to Encourage Researchers from anywhere to study this more in a Fair and Just way that provides Guidance.</b>
-<br>*The <i>Cases</i> are organized for Prevention Importance and years.
+<br>*<i>The Cases</i> are organized for Prevention Importance and years.
 <br><br>
 <center><img src="https://github.com/RescueSocialTech/Victims_Cases_Film-Music-Arts/blob/main/z-film-banner.jpg" width="600" height="100"></center>	
 
@@ -25,7 +25,7 @@ Status	State	Year	Moving Party	Responding Party	Moving Actions	Responding Action
 <br>
 - <i>"The Price of LA" pilot TV show for BUZZ is an example speaking to a witness while at a nightclub:</i>
 [![Watch the video](https://img.youtube.com/vi/2Ie2OcADm30/maxresdefault.jpg)](https://youtu.be/2Ie2OcADm30?si=XOCxuQFk82QGvhRS)
-- <i>Watching Videos Analysis that Helps Victims/Survivors and Refutes Enablement at Eat Predators is helpful: https://www.youtube.com/@eatpredators</i>
+- <i>Watching Videos Analysis that Helps Victims/Survivors and Refutes Enablement at Eat Predators Inc is helpful: https://www.youtube.com/@eatpredators</i>
 
 It's important for correct and accessible records in these investigations. Some interesting points when studying enablement, which can be profitable for enablers, is that Witness Dennis Davern and 700 people petitioned to re-open the investigation about Natalie Wood: https://www.cbsnews.com/news/natalie-wood-death-in-dark-water
 - 41 Affidavits were collected for a dialogue coach perpetrator at Nickelodeon that harmed actors. Transcription and Records were obtained - https://stylecaster.com/lists/brian-peck-court-documents

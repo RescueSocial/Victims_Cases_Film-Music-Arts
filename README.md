@@ -17,13 +17,13 @@ Status	State	Year	Moving Party	Responding Party	Moving Actions	Responding Action
 <i>Example: Joe DiMaggio used a private eye to surveil and strong-arm Marilyn Monroe as divorce granted… “LAPD investigated a foiled burglary and, without suspects, the case faded. Sold the “wrong-door raid” story to Confidential magazine, where it appeared in the September 1955 issue… California state senator Fred Kraft… cited the incident as an example of “strong-arm” tactics by private eyes in the service of the magazine.” By 1978..</i><br>
 <br>
 The cases are organized for prevention importance and years.
+<br><b>This is highly useful for people who need to see Conflicts of Interests as well as to Encourage Researchers from anywhere to study this more in a Fair and Just way that provides Guidance.</b><br><br>
 <br>This year, we will be improving this with data analysis and research, as well as knowledge graphs for general cases... will increase the information accessible.
 <br>
-<br><b>This is highly useful for people who need to see Conflicts of Interests as well as to Encourage Researchers from anywhere to study this more in a Fair and Just way that provides Guidance.</b><br><br>
 
 <center><img src="https://github.com/RescueSocialTech/Victims_Cases_Film-Music-Arts/blob/main/z-film-banner.jpg" width="600" height="100"></center>	
 
-<i><b>*Legislation improvements are needed, and having research of the common problems of cases over Decades that prevent people in the Visual & Performing Arts from having a just legal system either outside or inside of court, related to a mixing of tactics that are not helpful to disastrous.
+<i><b>*Legislation Improvements are needed, and having research of the common problems of Cases over Decades that prevent people in the Visual & Performing Arts from having a just legal system either outside or inside of court, related to a mixing of tactics that are not helpful to disastrous.
 <br>This is to move this sector into research away from sporadic updates based on the issues of the time.</i></b>
 <br>
 - <i>"The Price of LA" pilot TV show for BUZZ is an example speaking to a witness while at a nightclub:</i>

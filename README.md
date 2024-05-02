@@ -31,6 +31,6 @@ The cases are organized for prevention importance and years.
 - <i>Watching Videos Analysis that Helps Victims/Survivors and Refutes Enablement at Eat Predators is helpful: https://www.youtube.com/@eatpredators</i>
 
 It's important for correct and accessible records in these investigations. Some interesting points when studying enablement, which can be profitable for enablers, is that Witness Dennis Davern and 700 people petitioned to re-open the investigation about Natalie Wood: https://www.cbsnews.com/news/natalie-wood-death-in-dark-water
-- 41 Affidavits were collected for a perpetrator at Nickelodeon. Transcription and Records were obtained - https://stylecaster.com/lists/brian-peck-court-documents
+- 41 Affidavits were collected for a dialogue coach perpetrator at Nickelodeon that harmed actors. Transcription and Records were obtained - https://stylecaster.com/lists/brian-peck-court-documents
 
 <i>NOTE: Moving Parties and Responding Parties does not necessarily declare absoluteness regarding innocence or allegations. People are advised to protect themselves legally and at this time, due to lacking research available, there may be patterns on moving/responding. These documents are improving.</i>

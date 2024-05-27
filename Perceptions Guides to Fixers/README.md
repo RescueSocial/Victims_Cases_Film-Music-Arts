@@ -14,6 +14,8 @@ Positive Profiling can cause a ‘subject’ to flourish. That can intensify wit
 
 Relatability – a positive profile wants to use relatability to have the person be socially welcomed and their thinking/passions shown as understandable
 
+Cases: Anyone’s cases that may have witness testimony and documentations - including investigations
+
 <b>*See files above for negative profiling and terminology guides*
 
 What is William Hazlet's "Art of Deception":<br></b>

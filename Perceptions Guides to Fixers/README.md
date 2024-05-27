@@ -20,6 +20,6 @@ Cases: Anyone’s cases that may have witness testimony and documentations - inc
 
 What is William Hazlet's "Art of Deception":<br></b>
 https://www.socratic-method.com/quote-meanings-interpretations/william-hazlitt-life-is-the-art-of-being-well-deceived-and-in-order-that-the-deception-may-succeed-it-must-be-habitual-and-uninterrupted
-<br>Basics: Perception, Deception, Implication - Pressure.
+<br><i>Basics: Perception, Deception, Implication... Pressure.</i>
 
 What are Verbatim Transcriptions of Audios? https://audext.com/what-is-a-verbatim-transcription

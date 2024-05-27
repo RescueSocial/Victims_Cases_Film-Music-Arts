@@ -1,4 +1,4 @@
-
+GUIDE TO SOME BASICS OF PERCEPTION IN RELATION TO FIXERS
 
 What are Logicial Fallacies? https://www.logicalfallacies.org
 

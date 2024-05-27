@@ -14,6 +14,7 @@ Positive Profiling can cause a ‘subject’ to flourish. That can intensify wit
 
 Relatability – a positive profile wants to use relatability to have the person be socially welcomed and their thinking/passions shown as understandable
 
+*See files above for negative profiling and terminology guides*
 
-What is William Hazlet's "Art of Deception":
+What is William Hazlet's "Art of Deception":<br>
 https://www.socratic-method.com/quote-meanings-interpretations/william-hazlitt-life-is-the-art-of-being-well-deceived-and-in-order-that-the-deception-may-succeed-it-must-be-habitual-and-uninterrupted

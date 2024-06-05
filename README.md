@@ -1,5 +1,5 @@
 # Victims_Cases_Film-Music-Arts
-<h3>Victims Cases in Film/Music/Arts - Database Draft</h3>
+<h3>Victims Cases in Film/Music/Arts</h3>
 
 101 cases so far - partially filled out
 
@@ -7,6 +7,8 @@
 - Related Cases (Both Criminal and Civil)<br>
 - Not Litigated<br>
 - Similar <br>
+
+With Analysis including Perception Guides in "The Business" - Accessible Information to Help Better Changes (Golden Era to PRESENT)
 
 Example Below -<br>
 <b>

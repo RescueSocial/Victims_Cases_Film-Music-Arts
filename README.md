@@ -29,9 +29,10 @@ Status	State	Year	Moving Party	Responding Party	Moving Actions	Responding Action
 <br>[Watch the video](https://vimeo.com/311363928)
 - <i>Watching Videos Analysis that Helps Victims/Survivors and Refutes Enablement at Eat Predators Inc is helpful: https://www.youtube.com/@eatpredators</i>
 
-It's important for correct and accessible records in these investigations. Some interesting points when studying enablement, which can be profitable for enablers, is that Witness Dennis Davern and 700 people petitioned to re-open the investigation about Natalie Wood: https://www.cbsnews.com/news/natalie-wood-death-in-dark-water
+It's important for correct and accessible records in these investigations.
+<br>Some interesting points when studying enablement, which can be profitable for enablers, <b>is that Witness Dennis Davern and 700 people petitioned to re-open the investigation</b> about Natalie Wood: https://www.cbsnews.com/news/natalie-wood-death-in-dark-water
 - 41 Affidavits were collected for a dialogue coach perpetrator at Nickelodeon that harmed actors. Transcriptions and Records were obtained - https://stylecaster.com/lists/brian-peck-court-documents 
-- <i>That Surprise Witness LLC on Fixer/Investigator that Witness Lil Rod cited: [Watch the video](https://www.youtube.com/watch?v=qr3zYt5Ae-s)</i>
+- <i>That Surprise Witness LLC on <b>Fixer/Investigator</b> that Witness Lil Rod cited: [Watch the video](https://www.youtube.com/watch?v=qr3zYt5Ae-s)</i>
 
 <i>NOTE: Moving Parties and Responding Parties does not necessarily declare absoluteness regarding innocence or allegations. People are advised to protect themselves legally and at this time, due to lacking research available, there may be patterns on moving/responding. These documents are improving.</i>
 <br>This year, we will be improving this with data analysis and research, as well as knowledge graphs for general cases... will increase the information accessible.

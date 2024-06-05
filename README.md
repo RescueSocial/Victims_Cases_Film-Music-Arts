@@ -6,8 +6,6 @@
 - Not Litigated<br>
 - Similar <br>
 
-<i>With Analysis including Perception Guides in "The Business" - Accessible Information to Help Better Changes (Golden Era to PRESENT)</i>
-
 Example Below -<br>
 <b>
 Status	State	Year	Moving Party	Responding Party	Moving Actions	Responding Actions	Investigators Victim	Investigators Perpetrator	Lawyers Responding	Lawyers Moving	Arts Business Areas	Responding Arts Area	Moving Arts Area	Experts Victim	Experts Perpetrators	Videos	Links											
@@ -20,7 +18,9 @@ Status	State	Year	Moving Party	Responding Party	Moving Actions	Responding Action
 <br><b>This is highly useful for people who need to see Conflicts of Interests as well as to Encourage Researchers from anywhere to study this more in a Fair and Just way that provides Guidance.</b>
 <br>*<i>The Cases</i> are organized for Prevention Importance and years.
 <br><br>
-<center><img src="https://github.com/RescueSocialTech/Victims_Cases_Film-Music-Arts/blob/main/z-film-banner.jpg" width="600" height="100"></center>	
+<center><img src="https://github.com/RescueSocialTech/Victims_Cases_Film-Music-Arts/blob/main/z-film-banner.jpg" width="600" height="100"></center>
+
+<i>With Analysis including Perception Guides in "The Business" - Accessible Information to Help Better Changes (Golden Era to PRESENT)</i>	
 
 <i><b>*Legislation Improvements are needed, and having research of the common problems of cases over Decades that prevent people in the Visual & Performing Arts from having a just legal system either outside or inside of court, related to a mixing of tactics that are not helpful to disastrous.
 <br>This is to move this sector into research away from sporadic updates based on the issues of the time.</i></b>

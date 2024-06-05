@@ -1,12 +1,12 @@
 # Victims_Cases_Film-Music-Arts
-<h3>101 Cases in Film/Music/Arts of Victims/Witnesses (Visual & Performing Arts) to Improve Lives.</h3>
+<h3>101 Listed Cases in Film/Music/Arts of Victims/Witnesses (Visual & Performing Arts) to Improve Lives.</h3>
 
 - Filed Cases (Lawsuits)<br>
 - Related Cases (Both Criminal and Civil)<br>
 - Not Litigated<br>
 - Similar <br>
 
-With Analysis including Perception Guides in "The Business" - Accessible Information to Help Better Changes (Golden Era to PRESENT)
+<i>With Analysis including Perception Guides in "The Business" - Accessible Information to Help Better Changes (Golden Era to PRESENT)</i>
 
 Example Below -<br>
 <b>

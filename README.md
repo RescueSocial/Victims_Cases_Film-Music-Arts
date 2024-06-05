@@ -1,7 +1,5 @@
 # Victims_Cases_Film-Music-Arts
-<h3>Victims Cases in Film/Music/Arts</h3>
-
-101 cases so far - partially filled out
+<h3>101 Cases in Film/Music/Arts of Victims/Witnesses (Visual & Performing Arts) to Improve Lives.</h3>
 
 - Filed Cases (Lawsuits)<br>
 - Related Cases (Both Criminal and Civil)<br>

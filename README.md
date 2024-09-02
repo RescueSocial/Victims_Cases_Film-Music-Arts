@@ -3,8 +3,8 @@
 
 - Filed Cases (Lawsuits)<br>
 - Related Cases (Both Criminal and Civil)<br>
-- Not Litigated<br>
-- Similar <br>
+- Cases Not Litigated <br>
+- Similar Cases <br>
 
 Example Below -<br>
 <b>

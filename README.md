@@ -6,7 +6,7 @@
 - Cases Not Litigated (Legal Letters, Strong-Arming, Fixers, Investigators, Others)<br>
 - Similar Cases<br>
 
-Example -<br>
+Example:<br>
 <b>
 Status	State	Year	Moving Party	Responding Party	Moving Actions	Responding Actions	Investigators Victim	Investigators Perpetrator	Lawyers Responding	Lawyers Moving	Arts Business Areas	Responding Arts Area	Moving Arts Area	Experts Victim	Experts Perpetrators	Videos	Links											
 <br>

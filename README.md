@@ -26,7 +26,7 @@ Status	State	Year	Moving Party	Responding Party	Moving Actions	Responding Action
 - <i>"The Price of LA" pilot TV show for BUZZ is an example speaking with a witness while at a nightclub:</i>
 <br>[Watch the video](https://vimeo.com/311363928)
 
-<br>Some interesting points when studying enablement, which can be profitable for enablers, <b>is that Witness Dennis Davern and 700 people petitioned to re-open the investigation</b> about Natalie Wood: https://www.cbsnews.com/news/natalie-wood-death-in-dark-water
+Some interesting points when observing enablement, which can be profitable for enablers, <b>is that Witness Dennis Davern and 700 people petitioned to re-open the investigation</b> about Natalie Wood: https://www.cbsnews.com/news/natalie-wood-death-in-dark-water
 <br>
 - <i>Watching Videos Analysis that Helps Victims/Survivors and Refutes Enablement at Eat Predators Inc is helpful: https://www.youtube.com/@eatpredators</i>
 

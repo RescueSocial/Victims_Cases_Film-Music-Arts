@@ -42,4 +42,4 @@ It's important for correct and accessible records in these investigations.
 
 <i>NOTE: Moving Parties and Responding Parties does not necessarily declare absoluteness regarding innocence or allegations. People are advised to protect themselves legally and at this time, due to lacking research available, there may be patterns on moving/responding. These documents are improving.</i>
 <br>
-<br>This year, we will be improving this with data analysis and research, as well as knowledge graphs for general cases... will increase the information accessible.
+<br>This year, we will be improving this with data analysis and research, as well as knowledge graphs for general VISUAL AND PERFORMING ARTS - Or "Hollywood" - Cases, will increase the improvements accessible.

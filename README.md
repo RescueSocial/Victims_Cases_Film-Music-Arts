@@ -33,5 +33,10 @@ It's important for correct and accessible records in these investigations.
 - 41 Affidavits were collected for a <b>dialogue</b> coach perpetrator at Nickelodeon that harmed actors. <b>Transcriptions and Records</b> were obtained - https://stylecaster.com/lists/brian-peck-court-documents 
 - <i>That Surprise Witness LLC on <b>Fixer/Investigator</b> that Witness Lil Rod cited: [Watch the video](https://www.youtube.com/watch?v=qr3zYt5Ae-s)</i>
 
+<b>Example of Confidential Magazine Documentary:</b>
+<br>
+[![Confidential Documentary](https://img.youtube.com/vi/YW1yH-bTWi8/0.jpg)]((https://youtu.be/YW1yH-bTWi8))
+<br>
+
 <i>NOTE: Moving Parties and Responding Parties does not necessarily declare absoluteness regarding innocence or allegations. People are advised to protect themselves legally and at this time, due to lacking research available, there may be patterns on moving/responding. These documents are improving.</i>
 <br>This year, we will be improving this with data analysis and research, as well as knowledge graphs for general cases... will increase the information accessible.

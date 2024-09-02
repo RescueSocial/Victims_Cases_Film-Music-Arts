@@ -3,7 +3,7 @@
 
 - Filed Cases (Lawsuits, Legal Filings)<br>
 - Related Cases (Civil, Criminal, Witness Interests)<br>
-- Cases Not Litigated (Legal Letters, Strong-Arming, Fixers, Investigators, Others)<br>
+- Cases Not Litigated (Legal Letters, Social Impact, Strong-Arming, Fixers, Investigators, Others)<br>
 - Similar Cases<br>
 
 Example:<br>

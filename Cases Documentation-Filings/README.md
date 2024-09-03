@@ -23,4 +23,5 @@ It's important for correct and accessible records in these investigations.
 ## Foundational Examples - As Many Cases as Possible with Categories
 Joe DiMaggio <b>used</b> a private eye to surveil and strong-arm Marilyn Monroe as divorce granted… “LAPD investigated a <b>foiled</b> burglary and, without suspects, the <b>case</b> faded. <br><b>Sold</b> the “wrong-door raid” story to Confidential magazine, where it appeared in the September 1955 issue…
 <br>California state senator Fred Kraft… cited the incident as an example of <b>“strong-arm” tactics</b> by private eyes in the service of the magazine.” By 1978...</i><br>
-<br><b>This is highly useful for people who need to see Conflicts of Interests as well as to Encourage Researchers from anywhere to study this more in a Fair and Just way that provides Guidance.</b>
+<br><b>This is highly useful for people who need to see Conflicts of Interests as well as to Encourage Researchers from anywhere to study this more in a Fair and Just way that provides Guidance.</b><br>
+<i>Comparing Legislation Improvements for U.S. Laws, for example to <a href="https://newyork.public.law/laws/n.y._penal_law_section_135.60">New York</a></i>

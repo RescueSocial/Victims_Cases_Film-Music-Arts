@@ -4,7 +4,7 @@
 <br>
 [![Confidential Documentary](https://img.youtube.com/vi/YW1yH-bTWi8/0.jpg)](https://youtu.be/YW1yH-bTWi8)
 
-<br>This is to move this sector into for better businesses, away from sporadic updates based on the issues of the time.</i></b>
+<b></i>This is to move this sector into for better assistance, away from sporadic updates based on the issues of the time.</i></b>
 - <i>"The Price of LA" pilot TV show for BUZZ is an example speaking with a witness while at a nightclub:</i>
 <br>[Watch the video](https://vimeo.com/311363928)
 

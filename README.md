@@ -40,8 +40,7 @@ It's important for correct and accessible records in these investigations.
 <br>
 [![Confidential Documentary](https://img.youtube.com/vi/YW1yH-bTWi8/0.jpg)](https://youtu.be/YW1yH-bTWi8)
 <br>
-<i>NOTE: Moving Parties and Responding Parties does not necessarily declare absoluteness regarding innocence or allegations. People are advised to protect themselves legally and at this time, due to lacking research available, there may be patterns on moving/responding. These documents are improving.</i>
+<i>NOTE: Moving Parties and Responding Parties does not necessarily declare absoluteness regarding innocence or allegations. People are advised to protect themselves legally and at this time, due to lacking research available, there may be patterns on moving/responding. These documents are improving.</i><br>
+<i>Comparing Legislation to U.S. Laws, for example to New York State: https://newyork.public.law/laws/n.y._penal_law_section_135.60</i>
 
-Comparing Legislation to U.S. Laws, for example to New York State: https://newyork.public.law/laws/n.y._penal_law_section_135.60
-
-<br>This year, we will be improving this with data analysis and research, as well as knowledge graphs for general VISUAL AND PERFORMING ARTS - Or "Hollywood" - Cases, will increase the improvements accessible.
+<br>This year, we will be improving this with case analysis and research, as well as knowledge graphs for general VISUAL AND PERFORMING ARTS - Or "Hollywood" - Cases, will increase the improvements accessible.

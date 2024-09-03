@@ -1,6 +1,7 @@
 # Victims_Cases_Film-Music-Arts
 <h3>101 Cases Listed in Film/Music/Arts of Victims/Witnesses (Visual & Performing Arts) to Improve & Save Lives</h3>
-
+<i>- With Analysis including Perception Guides in "The Business" - Accessible Information to Help Better Changes (Golden Era to PRESENT)</i>
+<br>
 - Filed Cases (Lawsuits, Legal Filings)<br>
 - Related Cases (Civil, Criminal, Witness Interests)<br>
 - Cases Not Litigated (Legal Letters, Social Impact, Strong-Arming, Fixers, Investigators, Others)<br>
@@ -22,7 +23,6 @@ Joe DiMaggio <b>used</b> a private eye to surveil and strong-arm Marilyn Monroe 
 <center><img src="https://github.com/RescueSocialTech/Victims_Cases_Film-Music-Arts/blob/main/z-film-banner.jpg" width="600" height="100"></center>	
 <i><b>*Legislation Improvements are needed, and having research of the common problems of cases over Decades that prevent people in the Visual & Performing Arts from having a just legal system either outside or inside of court, related to a mixing of tactics that are not helpful, exploitative to disastrous.
 
-<br><i>- With Analysis including Perception Guides in "The Business" - Accessible Information to Help Better Changes (Golden Era to PRESENT)</i>
 <br>This is to move this sector into research away from sporadic updates based on the issues of the time.</i></b>
 - <i>"The Price of LA" pilot TV show for BUZZ is an example speaking with a witness while at a nightclub:</i>
 <br>[Watch the video](https://vimeo.com/311363928)

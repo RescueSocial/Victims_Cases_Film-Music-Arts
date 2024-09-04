@@ -42,8 +42,6 @@ It's important for correct and accessible records in these investigations.
 <br>
 <i>NOTE: Moving Parties and Responding Parties does not necessarily declare absoluteness regarding innocence or allegations. People are advised to protect themselves legally and at this time, due to lacking research available, there may be patterns on moving/responding. These documents are improving.</i>
 
-We will be improving this with case analysis, as well as knowledge graphs for general VISUAL AND PERFORMING ARTS - Or "Hollywood" - Cases, will increase the improvements accessible.
-
 ## <b>Improve Legislation and Comparisons </i>
 <i>Comparing Legislation Improvements for U.S. Laws, for example to <a href="https://newyork.public.law/laws/n.y._penal_law_section_135.60">New York</a></i>
 
@@ -62,3 +60,5 @@ argument, logic-related impediments and fallacies, elements of cogent reasoning,
 elements to interpersonal communication and issues via readings and film viewings.<br>
 - Logic and Contemporary Rhetoric: The Use of Reason in Everyday Life
 (2011 version has cameras on the cover)<br><a href="https://archive.org/details/logiccontemporar0000kaha_b2b5/mode/2up">Full Free Book on Archive Org</a>
+
+<i>We will be improving this with cases analysis, as well as knowledge graphs for general VISUAL AND PERFORMING ARTS - Or "Hollywood" - Cases, will increase the improvements accessible.</i>

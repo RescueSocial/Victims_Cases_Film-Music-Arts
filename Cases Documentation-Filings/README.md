@@ -34,7 +34,8 @@ Joe DiMaggio <b>used</b> a private eye to surveil and strong-arm Marilyn Monroe 
 - via course readings and film viewings.
 1) Five critical response essays (3-4 page length) based on readings and films
 
-Compare seeing the Cases Components with Modern Re-takes of Trailers of Rear Window (1954) - James Stewart, Grace Kelly<br>
+Compare seeing the Cases Components with Modern Re-takes of
+<br>Trailers of Rear Window (1954) - James Stewart, Grace Kelly<br>
 <a href="https://www.youtube.com/watch?v=DbFi2SnRPT4">
 <img src="https://img.youtube.com/vi/DbFi2SnRPT4/0.jpg" width=40% height=40%>
 </a>

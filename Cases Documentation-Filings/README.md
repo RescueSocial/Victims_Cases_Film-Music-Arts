@@ -33,7 +33,7 @@ Joe DiMaggio <b>used</b> a private eye to surveil and strong-arm Marilyn Monroe 
 - An additional emphasis will be via the use of films that illustrate the material.
 - Critical response based on case readings and films
 
-Compare seeing the Cases Components with Modern Re-takes
+Compare seeing the Cases Components with Modern Re-Takes
 <br>Modern Trailer of Rear Window (1954) - James Stewart, Grace Kelly<br>
 <a href="https://www.youtube.com/watch?v=DbFi2SnRPT4">
 <img src="https://img.youtube.com/vi/DbFi2SnRPT4/0.jpg" width=40% height=40%>
@@ -42,5 +42,5 @@ Compare seeing the Cases Components with Modern Re-takes
 <br>Comprehensive in the principles and methods of critical thinking and effective communication. Learn the elements and types of
 argument, logic-related impediments and fallacies, elements of cogent reasoning, as well as the methods for recognizing and analyzing argumentative rhetoric and extended arguments. A special emphasis will be on the practical application of the aforementioned
 elements to interpersonal communication and issues via readings and film viewings.<br>
-Logic and Contemporary Rhetoric: The Use of Reason in Everyday Life
+= Logic and Contemporary Rhetoric: The Use of Reason in Everyday Life
 (2011 version has cameras on the cover) - https://archive.org/details/logiccontemporar0000kaha_b2b5/mode/2up

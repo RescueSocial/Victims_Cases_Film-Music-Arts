@@ -8,8 +8,11 @@
 - Similar Cases<br>
  <i>(Golden Era Hollywood to PRESENT)</i>
 
-Example:<br>
-<b>									
+## Foundational Examples - As Many Cases as Possible with Categories
+Joe DiMaggio <b>used</b> a private eye to surveil and strong-arm Marilyn Monroe as divorce granted… “LAPD investigated a <b>foiled</b> burglary and, without suspects, the <b>case</b> faded. <br><b>Sold</b> the “wrong-door raid” story to Confidential magazine, where it appeared in the September 1955 issue…
+<br>California state senator Fred Kraft… cited the incident as an example of <b>“strong-arm” tactics</b> by private eyes in the service of the magazine.” By 1978...</i><br>
+
+Example:<br><b>									
 - Investigated -	California -	1954 -	<i>Joe DiMaggio	Marilyn Monroe</i> -	Surveilled, Break-In, Strong Arming	- 	Barney Rudisky	-		Film, Sports, Fixers					<br>	https://www.vanityfair.com/hollywood/2003/04/robert-harrison-confidential-magazine		
 <br>
 <img src="https://miro.medium.com/v2/resize:fit:720/format:webp/1*jbJqOsaCo4fyLa9HHikxCA.jpeg" width=30% height=30%><br>
@@ -17,9 +20,6 @@ Example:<br>
 Status	State	Year	Moving Party	Responding Party	Moving Actions	Responding Actions	Investigators Victim	Investigators Perpetrator	Lawyers Responding	Lawyers Moving	Arts Business Areas	Responding Arts Area	Moving Arts Area	Experts Victim	Experts Perpetrators	Videos	Links		
 </b><br>
 
-## Foundational Examples - As Many Cases as Possible with Categories
-Joe DiMaggio <b>used</b> a private eye to surveil and strong-arm Marilyn Monroe as divorce granted… “LAPD investigated a <b>foiled</b> burglary and, without suspects, the <b>case</b> faded. <br><b>Sold</b> the “wrong-door raid” story to Confidential magazine, where it appeared in the September 1955 issue…
-<br>California state senator Fred Kraft… cited the incident as an example of <b>“strong-arm” tactics</b> by private eyes in the service of the magazine.” By 1978...</i><br>
 <br><b>This is highly useful for people who need to see Conflicts of Interests as well as to Encourage Researchers from anywhere to study this more in a Fair and Just way that provides Guidance.</b>
 <br>*<i>The Cases</i> are organized for Prevention Importance and years.
 <br>

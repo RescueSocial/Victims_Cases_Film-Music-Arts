@@ -9,9 +9,10 @@
  <i>(Golden Era Hollywood to PRESENT)</i>
 
 Example:<br>
-<img src="https://miro.medium.com/v2/resize:fit:720/format:webp/1*jbJqOsaCo4fyLa9HHikxCA.jpeg" width=30% height=30%><br>
 <b>									
 - Investigated -	California -	1954 -	<i>Joe DiMaggio	Marilyn Monroe</i> -	Surveilled, Break-In, Strong Arming	- 	Barney Rudisky	-		Film, Sports, Fixers					<br>	https://www.vanityfair.com/hollywood/2003/04/robert-harrison-confidential-magazine		
+<br>
+<img src="https://miro.medium.com/v2/resize:fit:720/format:webp/1*jbJqOsaCo4fyLa9HHikxCA.jpeg" width=30% height=30%><br>
 
 Status	State	Year	Moving Party	Responding Party	Moving Actions	Responding Actions	Investigators Victim	Investigators Perpetrator	Lawyers Responding	Lawyers Moving	Arts Business Areas	Responding Arts Area	Moving Arts Area	Experts Victim	Experts Perpetrators	Videos	Links		
 </b><br>

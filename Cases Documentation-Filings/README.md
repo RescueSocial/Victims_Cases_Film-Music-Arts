@@ -30,7 +30,7 @@ Joe DiMaggio <b>used</b> a private eye to surveil and strong-arm Marilyn Monroe 
 
 ## <i>Critical Thinking and Contempory Rhetoric Comparisons</i>
 <i>Film Use Is Mentioned (Although "High Noon" from Golden Hollywood is not mentioned) for better Logic and Contemporary Rhetoric:
-- An additional emphasis will be via the use of films that illustrate the course material.
+- An additional emphasis will be via the use of films that illustrate the material.
 - via course readings and film viewings.
 1) Five critical response essays (3-4 page length) based on readings and films
 

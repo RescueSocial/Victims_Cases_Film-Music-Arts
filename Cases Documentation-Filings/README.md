@@ -25,3 +25,7 @@ Joe DiMaggio <b>used</b> a private eye to surveil and strong-arm Marilyn Monroe 
 <br>California state senator Fred Kraft… cited the incident as an example of <b>“strong-arm” tactics</b> by private eyes in the service of the magazine.” By 1978...</i><br>
 <br><b>This is highly useful for people who need to see Conflicts of Interests as well as to Encourage Researchers from anywhere to study this more in a Fair and Just way that provides Guidance.</b><br>
 <i>Comparing Legislation Improvements for U.S. Laws, for example to <a href="https://newyork.public.law/laws/n.y._penal_law_section_135.60">New York</a></i>
+
+Compare seeing the cases components with Modern Trailers of Rear Window (1954) - James Stewart, Grace Kelly<br>
+[![Confidential Documentary](https://img.youtube.com/vi/DbFi2SnRPT4/0.jpg)]([https://www.youtube.com/watch?v=DbFi2SnRPT4))
+<br>Compare to the original trailer's perspective from Universal Pictures - <i>https://youtu.be/HejJ-yLmf3Y?si=V4Iji07lhB2faZeT</i>

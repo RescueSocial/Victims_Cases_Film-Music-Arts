@@ -60,5 +60,5 @@ Compare seeing the Cases Components with Modern Re-Takes
 argument, logic-related impediments and fallacies, elements of cogent reasoning, as well as the methods for recognizing and analyzing argumentative rhetoric and extended arguments. A special emphasis will be on the practical application of the aforementioned
 elements to interpersonal communication and issues via readings and film viewings.<br>
 - Logic and Contemporary Rhetoric: The Use of Reason in Everyday Life
-(2011 version has cameras on the cover)<br><a href="https://archive.org/details/logiccontemporar0000kaha_b2b5/mode/2up">Full Free Book on Archive Org</a>
+(2011 version has cameras on the cover)<br><a href="https://archive.org/details/logiccontemporar0000kaha_b2b5/mode/2up">Full Free Book on Archive Org</a><br>
 - <i>We will be improving this with cases analysis, as well as knowledge graphs for general VISUAL AND PERFORMING ARTS - Or "Hollywood" - Cases, will increase the quality improvements accessible and to save lives!!</i>

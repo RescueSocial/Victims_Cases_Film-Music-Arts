@@ -24,8 +24,19 @@ It's important for correct and accessible records in these investigations.
 Joe DiMaggio <b>used</b> a private eye to surveil and strong-arm Marilyn Monroe as divorce granted… “LAPD investigated a <b>foiled</b> burglary and, without suspects, the <b>case</b> faded. <br><b>Sold</b> the “wrong-door raid” story to Confidential magazine, where it appeared in the September 1955 issue…
 <br>California state senator Fred Kraft… cited the incident as an example of <b>“strong-arm” tactics</b> by private eyes in the service of the magazine.” By 1978...</i><br>
 <br><b>This is highly useful for people who need to see Conflicts of Interests as well as to Encourage Researchers from anywhere to study this more in a Fair and Just way that provides Guidance.</b><br>
+
+## New Legislation and Critical Thinking and Contempory Rhetoric Comparisons
 <i>Comparing Legislation Improvements for U.S. Laws, for example to <a href="https://newyork.public.law/laws/n.y._penal_law_section_135.60">New York</a></i>
 
+<i>Film Use Is Mentioned (Although "High Noon" from Golden Hollywood is not mentioned) for better Logic and Contemporary Rhetoric:
+- An additional emphasis will be via the use of films that illustrate the course material.
+- via course readings and film viewings.
+1) Five critical response essays (3-4 page length) based on readings and films
 Compare seeing the cases components with Modern Trailers of Rear Window (1954) - James Stewart, Grace Kelly<br>
-[![Confidential Documentary](https://img.youtube.com/vi/DbFi2SnRPT4/0.jpg)]([https://www.youtube.com/watch?v=DbFi2SnRPT4))
+<a href="https://www.youtube.com/watch?v=DbFi2SnRPT4">
+<img src="https://img.youtube.com/vi/DbFi2SnRPT4/0.jpg" width=40% height=40%>
+</a><br>
 <br>Compare to the original trailer's perspective from Universal Pictures - <i>https://youtu.be/HejJ-yLmf3Y?si=V4Iji07lhB2faZeT</i>
+<br>Comprehensive in the principles and methods of critical thinking and effective communication. Learn the elements and types of
+argument, logic-related impediments and fallacies, elements of cogent reasoning, as well as the methods for recognizing and analyzing argumentative rhetoric and extended arguments. A special emphasis will be on the practical application of the aforementioned
+course elements to interpersonal communication and issues via readings and film viewings.

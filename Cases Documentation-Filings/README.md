@@ -21,7 +21,7 @@ It's important for correct and accessible records in these investigations.
 </b>
 
 ## Foundational Examples - As Many Cases as Possible with Categories
-<a href="https://youtu.be/YW1yH-bTWi8">In excess of 101 cases,</a> Joe DiMaggio <i><b>used</b></i> a private eye to surveil and <i><b>strong-arm</b></i> Marilyn Monroe as divorce granted… LAPD investigated a <b>foiled</b> burglary... <b>Sold</b> the “wrong-door raid” story to Confidential magazine, where it appeared in the September 1955 issue… and, without suspects [witnesses/evidence - story], the <b>case</b> faded. 
+Joe DiMaggio <i><b>used</b></i> a private eye to surveil and <i><b>strong-arm</b></i> Marilyn Monroe as divorce granted… LAPD investigated a <b>foiled</b> burglary... <b>Sold</b> the “wrong-door raid” story to Confidential magazine, where it appeared in the September 1955 issue… and, without suspects [witnesses/evidence - story], the <b>case</b> faded. 
 
 <b>This is highly useful for people who need to see Conflicts of Interests as well as to Encourage Researchers from anywhere to study this more in a Fair and Just way that provides Guidance.</b><br>
 

@@ -39,7 +39,7 @@ Compare seeing the Cases Components with Modern Re-takes
 <a href="https://www.youtube.com/watch?v=DbFi2SnRPT4">
 <img src="https://img.youtube.com/vi/DbFi2SnRPT4/0.jpg" width=40% height=40%>
 </a>
-<br>Compare to the original trailer's perspective from Universal Pictures - <i>https://youtu.be/HejJ-yLmf3Y?si=V4Iji07lhB2faZeT</i>
+<br>Compare to the Original Trailer's Perspective Vantage Point from Universal Pictures - <i>https://youtu.be/HejJ-yLmf3Y?si=V4Iji07lhB2faZeT</i>
 <br>Comprehensive in the principles and methods of critical thinking and effective communication. Learn the elements and types of
 argument, logic-related impediments and fallacies, elements of cogent reasoning, as well as the methods for recognizing and analyzing argumentative rhetoric and extended arguments. A special emphasis will be on the practical application of the aforementioned
 elements to interpersonal communication and issues via readings and film viewings.

@@ -30,8 +30,8 @@ Joe DiMaggio <b>used</b> a private eye to surveil and strong-arm Marilyn Monroe 
 
 ## <i>Critical Thinking and Contempory Rhetoric Comparisons</i>
 <i>Film Use Is Mentioned (Although "High Noon" from Golden Hollywood is not mentioned) for better Logic and Contemporary Rhetoric:
-- Additional emphasis will be via the use of films that illustrate the material. Critical response based on case readings and films
-
+- </b>Additional emphasis will be via the use of films that illustrate the material. Critical response based on case readings and films
+<b>
 Compare seeing the Cases Components with Modern Re-Takes
 <br>Modern Trailer of Rear Window (1954) - James Stewart, Grace Kelly<br>
 <a href="https://www.youtube.com/watch?v=DbFi2SnRPT4">

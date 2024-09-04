@@ -8,7 +8,7 @@
 - Similar Cases<br>
  <i>(Golden Era Hollywood to PRESENT)</i>
 
-Example:<br><b>									
+Example Case:<br><b>									
 - Investigated -	California -	1954 -	<i>Joe DiMaggio	Marilyn Monroe</i> -	Surveilled, Break-In, Strong Arming	- 	Barney Rudisky	-		Film, Sports, Fixers					<br>	https://www.vanityfair.com/hollywood/2003/04/robert-harrison-confidential-magazine	
 
 ## Foundational Examples - As Many Cases as Possible with Categories

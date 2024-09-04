@@ -31,8 +31,7 @@ Joe DiMaggio <b>used</b> a private eye to surveil and strong-arm Marilyn Monroe 
 ## <i>Critical Thinking and Contempory Rhetoric Comparisons</i>
 <i>Film Use Is Mentioned (Although "High Noon" from Golden Hollywood is not mentioned) for better Logic and Contemporary Rhetoric:
 - An additional emphasis will be via the use of films that illustrate the material.
-- via course readings and film viewings.
-- Critical response essays based on case readings and films
+- Critical response based on case readings and films
 
 Compare seeing the Cases Components with Modern Re-takes
 <br>Modern Trailer of Rear Window (1954) - James Stewart, Grace Kelly<br>
@@ -42,4 +41,6 @@ Compare seeing the Cases Components with Modern Re-takes
 <br>Compare to the Original Trailer's Perspective Vantage Point from Universal Pictures - <i>https://youtu.be/HejJ-yLmf3Y?si=V4Iji07lhB2faZeT</i>
 <br>Comprehensive in the principles and methods of critical thinking and effective communication. Learn the elements and types of
 argument, logic-related impediments and fallacies, elements of cogent reasoning, as well as the methods for recognizing and analyzing argumentative rhetoric and extended arguments. A special emphasis will be on the practical application of the aforementioned
-elements to interpersonal communication and issues via readings and film viewings.
+elements to interpersonal communication and issues via readings and film viewings.<br>
+Logic and Contemporary Rhetoric: The Use of Reason in Everyday Life
+(2011 version has cameras on the cover) - https://archive.org/details/logiccontemporar0000kaha_b2b5/mode/2up

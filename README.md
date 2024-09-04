@@ -16,15 +16,15 @@ Status	State	Year	Moving Party	Responding Party	Moving Actions	Responding Action
 </b>
 
 ## <i>Foundational Examples - As Many Cases as Possible with Categories</i>
-<b>This is to move this sector to better assistance away from sporadic updates based on the issues of the time.</i></b><br>
-<a href="https://youtu.be/YW1yH-bTWi8">In excess of 101 cases,</a> Joe DiMaggio <i><b>used</b></i> a private eye to surveil and <i><b>strong-arm</b></i> Marilyn Monroe as divorce granted… LAPD investigated a <b>foiled</b> burglary... <b>Sold</b> the “wrong-door raid” story to Confidential magazine, where it appeared in the September 1955 issue… and, without suspects [witnesses/evidence - story], the <b>case</b> faded. 
-<br>"California state senator Fred Kraft… cited the incident as an example of <b>“strong-arm” tactics</b> by private eyes in the service of the magazine [and others]." By 1978...</i><br>
+Joe DiMaggio <b>used</b> a private eye to surveil and <i>strong-arm</i> Marilyn Monroe as divorce granted… “LAPD investigated a <b>foiled</b> burglary and, without suspects, the <b>case</b> faded. <br><b>Sold</b> the “wrong-door raid” story to Confidential magazine, where it appeared in the September 1955 issue…
+<br>California state senator Fred Kraft… cited the incident as an example of <b>“strong-arm” tactics</b> by private eyes in the service of the magazine.” By 1978...</i><br>
 <br><b>This is highly useful for people who need to see Conflicts of Interests as well as to Encourage Assistance from anywhere to study this more in a Fair and Just way that provides Guidance.</b>
 <br>*<i>The Cases</i> are organized for Prevention Importance and years.
 <br>
 <center><img src="https://github.com/RescueSocialTech/Victims_Cases_Film-Music-Arts/blob/main/z-film-banner.jpg" width="600" height="100"></center>	
 <i><b>*Legislation Improvements are needed, and having research of the common problems of cases over Decades that prevent people in the Visual & Performing Arts from having a just legal system either outside or inside of court, related to a mixing of tactics that are not helpful, exploitative to disastrous.
 
+<br>This is to move this sector to better assistance away from sporadic updates based on the issues of the time.</i></b>
 - <i>"The Price of LA" pilot TV show for BUZZ is an example speaking with a witness while at a nightclub:</i>
 <br>[Watch the video](https://vimeo.com/311363928)
 
@@ -39,7 +39,7 @@ It's important for correct and accessible records in these investigations.
 <b>Example of Confidential Magazine Documentary with Fixer Fred Otash:</b>
 <br>
 [![Confidential Documentary](https://img.youtube.com/vi/YW1yH-bTWi8/0.jpg)](https://youtu.be/YW1yH-bTWi8)
-<br></b>
+<br>
 <i>NOTE: Moving Parties and Responding Parties does not necessarily declare absoluteness regarding innocence or allegations. People are advised to protect themselves legally and at this time, due to lacking research available, there may be patterns on moving/responding. These documents are improving.</i>
 
 This year, we will be improving this with case analysis and research, as well as knowledge graphs for general VISUAL AND PERFORMING ARTS - Or "Hollywood" - Cases, will increase the improvements accessible.

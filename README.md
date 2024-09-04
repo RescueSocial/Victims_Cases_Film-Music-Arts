@@ -43,4 +43,22 @@ It's important for correct and accessible records in these investigations.
 <i>NOTE: Moving Parties and Responding Parties does not necessarily declare absoluteness regarding innocence or allegations. People are advised to protect themselves legally and at this time, due to lacking research available, there may be patterns on moving/responding. These documents are improving.</i>
 
 This year, we will be improving this with case analysis and research, as well as knowledge graphs for general VISUAL AND PERFORMING ARTS - Or "Hollywood" - Cases, will increase the improvements accessible.
-<br><i>Comparing Legislation Improvements for U.S. Laws, for example to <a href="https://newyork.public.law/laws/n.y._penal_law_section_135.60">New York</a></i>
+
+## <b>Improve Legislation and Comparisons </i>
+<i>Comparing Legislation Improvements for U.S. Laws, for example to <a href="https://newyork.public.law/laws/n.y._penal_law_section_135.60">New York</a></i>
+
+## <i>Critical Thinking and Contempory Rhetoric Comparisons</i>
+<i>Film Use Is Mentioned, although "High Noon" from Golden Hollywood is not mentioned, for better Logic and Contemporary Rhetoric:
+- </b>Additional emphasis will be via the use of films that illustrate the material. Critical response based on case readings and films
+<b>
+Compare seeing the Cases Components with Modern Re-Takes
+<br><a href="https://www.youtube.com/watch?v=DbFi2SnRPT4">Modern</a> Trailer of Rear Window (1954) - James Stewart, Grace Kelly<br>
+<a href="https://www.youtube.com/watch?v=DbFi2SnRPT4">
+<img src="https://img.youtube.com/vi/DbFi2SnRPT4/0.jpg" width=40% height=40%>
+</a>
+<br>Compare to the Original Trailer's Perspective Vantage Point (Cameras, Looking As a Witness from the Rear Window, Alfred Hitchcock) from Universal Pictures - <i>https://youtu.be/HejJ-yLmf3Y?si=V4Iji07lhB2faZeT</i>
+<br></b>Comprehensive in the principles and methods of critical thinking and effective communication. Learn the elements and types of
+argument, logic-related impediments and fallacies, elements of cogent reasoning, as well as the methods for recognizing and analyzing argumentative rhetoric and extended arguments. A special emphasis will be on the practical application of the aforementioned
+elements to interpersonal communication and issues via readings and film viewings.<br>
+- Logic and Contemporary Rhetoric: The Use of Reason in Everyday Life
+(2011 version has cameras on the cover)<br><a href="https://archive.org/details/logiccontemporar0000kaha_b2b5/mode/2up">Full Free Book on Archive Org</a>

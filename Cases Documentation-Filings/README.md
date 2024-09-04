@@ -1,5 +1,5 @@
 ## Start to Documentations of Cases Related to the Arts
-<b></i>This is to move this sector into for better assistance, away from sporadic updates based on the issues of the time.</i></b><br>
+<b></i>This is to move this sector to better assistance, away from sporadic updates based on the issues of the time.</i></b><br>
 <br><i><b>*Legislation Improvements are needed, and having research of the common problems of cases over Decades that prevent people in the Visual & Performing Arts from having a just legal system either outside or inside of court, related to a mixing of tactics that are not helpful, exploitative to disastrous.
 
 <b>Example of Confidential Magazine Documentary with Fixer Fred Otash:</b>
@@ -42,4 +42,4 @@ Compare seeing the Cases Components with Modern Re-takes
 <br>Compare to the original trailer's perspective from Universal Pictures - <i>https://youtu.be/HejJ-yLmf3Y?si=V4Iji07lhB2faZeT</i>
 <br>Comprehensive in the principles and methods of critical thinking and effective communication. Learn the elements and types of
 argument, logic-related impediments and fallacies, elements of cogent reasoning, as well as the methods for recognizing and analyzing argumentative rhetoric and extended arguments. A special emphasis will be on the practical application of the aforementioned
-course elements to interpersonal communication and issues via readings and film viewings.
+elements to interpersonal communication and issues via readings and film viewings.

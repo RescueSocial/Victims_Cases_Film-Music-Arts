@@ -42,4 +42,4 @@ Compare seeing the Cases Components with Modern Re-Takes
 argument, logic-related impediments and fallacies, elements of cogent reasoning, as well as the methods for recognizing and analyzing argumentative rhetoric and extended arguments. A special emphasis will be on the practical application of the aforementioned
 elements to interpersonal communication and issues via readings and film viewings.<br>
 - Logic and Contemporary Rhetoric: The Use of Reason in Everyday Life
-(2011 version has cameras on the cover) - Full Book: https://archive.org/details/logiccontemporar0000kaha_b2b5/mode/2up
+(2011 version has cameras on the cover)<br>Full Book: https://archive.org/details/logiccontemporar0000kaha_b2b5/mode/2up

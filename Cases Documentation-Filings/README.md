@@ -25,7 +25,7 @@ Joe DiMaggio <b>used</b> a private eye to surveil and strong-arm Marilyn Monroe 
 <br>California state senator Fred Kraft… cited the incident as an example of <b>“strong-arm” tactics</b> by private eyes in the service of the magazine.” By 1978...</i><br>
 <br><b>This is highly useful for people who need to see Conflicts of Interests as well as to Encourage Researchers from anywhere to study this more in a Fair and Just way that provides Guidance.</b><br>
 
-## Improved Legislation 
+## <b>Improve Legislation and Comparisons </i>
 <i>Comparing Legislation Improvements for U.S. Laws, for example to <a href="https://newyork.public.law/laws/n.y._penal_law_section_135.60">New York</a></i>
 
 ## <i>Critical Thinking and Contempory Rhetoric Comparisons</i>

@@ -2,7 +2,7 @@
 <h3>101 Cases Listed in Film/Music/Arts of Victims/Witnesses (Visual & Performing Arts) to Improve & Save Lives</h3>
 <i>Analysis including Perception Guides in "The Business." Accessible Information to Help Better Changes in the Arts</i><br>
 
-- Filed Cases (Lawsuits, Legal Filings)<br>
+- Filed Cases (Legal Filings, Lawsuits)<br>
 - Related Cases (Civil, Criminal, Witness Interests)<br>
 - Cases Not Litigated (Legal Letters, Social Impact, Strong-Arming, Fixers, Investigators, Others)<br>
 - Similar Cases<br>
@@ -40,7 +40,7 @@ It's important for correct and accessible records in these investigations.
 <b>Example of Confidential Magazine Documentary with Fixer Fred Otash:</b>
 <br>
 [![Confidential Documentary](https://img.youtube.com/vi/YW1yH-bTWi8/0.jpg)](https://youtu.be/YW1yH-bTWi8)
-<br>
+<br>*Cases shown of people resisting exploitation in the <a href="https://youtu.be/YW1yH-bTWi8">film</a><br>
 <i>NOTE: Moving Parties and Responding Parties does not necessarily declare absoluteness regarding innocence or allegations. People are advised to protect themselves legally and at this time, due to lacking research available, there may be patterns on moving/responding. These documents are improving.</i>
 
 ## <b>Improve Legislation and Comparisons </i>

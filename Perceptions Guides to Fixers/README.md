@@ -22,7 +22,7 @@ What is William Hazlet's "Art of Deception":<br></b>
 https://www.socratic-method.com/quote-meanings-interpretations/william-hazlitt-life-is-the-art-of-being-well-deceived-and-in-order-that-the-deception-may-succeed-it-must-be-habitual-and-uninterrupted
 <br><i>Basics: Perception, Deception, Implication... Pressure.</i>
 
-What are Verbatim Transcriptions of Audios? https://audext.com/what-is-a-verbatim-transcription
+What are <b>Verbatim</b> Transcriptions of Audios? https://audext.com/what-is-a-verbatim-transcription
 
 Did not want to Implicate Artists to associated interested subjects - https://theaccidentalgangster.com<br>
 "The Accidential Gangster" - Ori Spado - Hosted by Sally Colón, in Interview: https://www.youtube.com/watch?v=A-63tGhzDes<br>

@@ -23,3 +23,6 @@ https://www.socratic-method.com/quote-meanings-interpretations/william-hazlitt-l
 <br><i>Basics: Perception, Deception, Implication... Pressure.</i>
 
 What are Verbatim Transcriptions of Audios? https://audext.com/what-is-a-verbatim-transcription
+
+Did not want to implicate Artists to Associations - https://theaccidentalgangster.com<br>
+"The Accidential Gangster" - Ori Spado - Hosted by Sally Colón, in Interview: https://www.youtube.com/watch?v=A-63tGhzDes

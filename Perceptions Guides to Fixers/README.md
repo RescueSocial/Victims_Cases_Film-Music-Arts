@@ -26,4 +26,4 @@ What are Verbatim Transcriptions of Audios? https://audext.com/what-is-a-verbati
 
 Did not want to Implicate Artists to associated interested subjects - https://theaccidentalgangster.com<br>
 "The Accidential Gangster" - Ori Spado - Hosted by Sally Colón, in Interview: https://www.youtube.com/watch?v=A-63tGhzDes<br>
-- Implication means going from A to C, without B.
+Implication means going from A to C, without B. The first page mentions Frank Sinatra, however, others frequented nightclubs and social circles.

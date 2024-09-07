@@ -57,7 +57,7 @@ Compare seeing the Cases Components with Modern Re-Takes
 </a>
 <br>Compare to the Original Trailer's Perspective Vantage Point (Cameras, Looking As a Witness from the Rear Window, Alfred Hitchcock) from Universal Pictures - <i>https://youtu.be/HejJ-yLmf3Y?si=V4Iji07lhB2faZeT</i>
 <br></b>Comprehensive in the principles and methods of critical thinking and effective communication. Learn the Elements of These Cases and types of
-argument, logic-related impediments and fallacies, elements of cogent reasoning, as well as the methods for recognizing and analyzing argumentative rhetoric and extended arguments. A special emphasis will be on the practical application of the aforementioned
+argument, logic-related impediments and fallacies, elements in respect to cogent reasoning, as well as the methods for recognizing and analyzing argumentative rhetoric and extended arguments. A special emphasis will be on the practical application of the aforementioned
 elements to interpersonal communication and issues via readings and film viewings.<br>
 - Logic and Contemporary Rhetoric: The Use of Reason in Everyday Life
 (2011 version has cameras on the cover)<br><a href="https://archive.org/details/logiccontemporar0000kaha_b2b5/mode/2up">Full Free Book on Archive Org</a><br>

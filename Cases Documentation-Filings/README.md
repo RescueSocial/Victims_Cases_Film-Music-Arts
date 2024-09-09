@@ -6,7 +6,7 @@
 <br>
 [![Confidential Documentary](https://img.youtube.com/vi/YW1yH-bTWi8/0.jpg)](https://youtu.be/YW1yH-bTWi8)
 
-- <i>"The Price of LA" pilot TV show for BUZZ is an example speaking with a Witness while at a nightclub:</i>
+- <i>"The Price of LA" pilot TV show for Buzz is an example speaking with a Witness while at a nightclub:</i>
 <br>[Watch the video](https://vimeo.com/311363928)
 
 Some interesting points when observing enablement, which can be profitable for enablers, <b>is that Witness Dennis Davern and 700 people petitioned to re-open the investigation</b> about Natalie Wood: https://www.cbsnews.com/news/natalie-wood-death-in-dark-water
@@ -15,7 +15,7 @@ Some interesting points when observing enablement, which can be profitable for e
 
 It's important for correct and accessible records in these investigations.
 - 41 Affidavits were collected for a <b>dialogue</b> coach perpetrator at Nickelodeon that harmed actors. <b>Transcriptions and Records</b> were obtained - https://stylecaster.com/lists/brian-peck-court-documents 
-- <i>That Surprise Witness LLC on <b>Fixer/Investigator</b> that Witness Lil Rod cited: [Watch the video](https://www.youtube.com/watch?v=qr3zYt5Ae-s)</i>
+- <i>2024: That Surprise Witness LLC on <b>Fixer/Investigator</b> that Witness Lil Rod cited: [Watch the video](https://www.youtube.com/watch?v=qr3zYt5Ae-s)</i>
 
 - Investigated -	California -	1954 -	<i>Joe DiMaggio	Marilyn Monroe</i> -	Surveilled, Break-In, Strong Arming	- 	Barney Rudisky	-		Film, Sports, Fixers					<br>	https://www.vanityfair.com/hollywood/2003/04/robert-harrison-confidential-magazine		
 </b>

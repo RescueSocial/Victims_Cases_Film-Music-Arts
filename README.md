@@ -48,7 +48,7 @@ NOTE: Moving Parties and Responding Parties does not necessarily declare absolut
 <i>Comparing Legislation Improvements for U.S. Laws, for example to <a href="https://newyork.public.law/laws/n.y._penal_law_section_135.60">New York</a></i>
 
 ## <i>Critical Thinking and Contemporary Rhetoric Comparisons</i>
-<i>Film Use Is Mentioned, although "High Noon" from Golden Hollywood is not mentioned, for better Logic and Contemporary Rhetoric:
+<i>Film Use Is Mentioned for Vantage Points, although "High Noon" from Golden Hollywood is not mentioned, for better Logic and Contemporary Rhetoric:
 - </b>Additional emphasis will be via the use of films that illustrate the material. Critical response based on case readings and films
 <b>
 Compare seeing the Cases Components with Modern Re-Takes

@@ -27,7 +27,7 @@ Example: Joe DiMaggio <i><b>used</b></i> a private eye to surveil and <i><b>stro
 <i><b>*Legislation Improvements are needed, and having research of the common problems of cases over Decades that prevent people in the Visual & Performing Arts from having a just legal system either outside or inside of court, related to a mixing of tactics that are not helpful, exploitative to disastrous.
 
 <br>This is to move this sector to better assistance away from sporadic updates based on the issues of the time.</i></b>
-- <i>"The Price of LA" pilot TV show for BUZZ is an example speaking with a Witness while at a nightclub:</i>
+- <i>"The Price of LA" pilot TV show for Buzz is an example speaking with a Witness while at a nightclub:</i>
 <br>[Watch the video](https://vimeo.com/311363928)
 
 Some interesting points when observing enablement, which can be profitable for enablers, <b>is that Witness Dennis Davern and 700 people petitioned to re-open the investigation</b> about Natalie Wood: https://www.cbsnews.com/news/natalie-wood-death-in-dark-water

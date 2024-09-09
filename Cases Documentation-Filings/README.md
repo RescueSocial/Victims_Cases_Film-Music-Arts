@@ -6,7 +6,7 @@
 <br>
 [![Confidential Documentary](https://img.youtube.com/vi/YW1yH-bTWi8/0.jpg)](https://youtu.be/YW1yH-bTWi8)
 
-- <i>"The Price of LA" pilot TV show for BUZZ is an example speaking with a witness while at a nightclub:</i>
+- <i>"The Price of LA" pilot TV show for BUZZ is an example speaking with a Witness while at a nightclub:</i>
 <br>[Watch the video](https://vimeo.com/311363928)
 
 Some interesting points when observing enablement, which can be profitable for enablers, <b>is that Witness Dennis Davern and 700 people petitioned to re-open the investigation</b> about Natalie Wood: https://www.cbsnews.com/news/natalie-wood-death-in-dark-water
@@ -30,7 +30,7 @@ Joe DiMaggio <i><b>used</b></i> a private eye to surveil and <i><b>strong-arm</b
 <i>Comparing Legislation Improvements for U.S. Laws, for example to <a href="https://newyork.public.law/laws/n.y._penal_law_section_135.60">New York</a></i>
 
 ## <i>Critical Thinking and Contemporary Rhetoric Comparisons</i>
-<i>Film Use Is Mentioned, although "High Noon" from Golden Hollywood is not mentioned, for better Logic and Contemporary Rhetoric:
+<i>Film Use Is Mentioned for Vantage Points, although "High Noon" from Golden Hollywood is not mentioned, for better Logic and Contemporary Rhetoric:
 - </b>Additional emphasis will be via the use of films that illustrate the material. Critical response based on case readings and films
 <b>
 Compare seeing the Cases Components with Modern Re-Takes

@@ -1,5 +1,5 @@
 # Victims_Cases_Film-Music-Arts
-<h3>113 Cases Listed in Film/Music/Arts of Victims/Witnesses (Visual & Performing Arts) to Improve Quality & Save Lives</h3>
+<h3>113 Cases Listed in Film, Music, Arts of Victims/Witnesses (Visual & Performing Arts) to Improve Quality & Save Lives</h3>
 <i>Analysis including Perception Guides in "The Business." Accessible Information for Better Servicing in the Arts</i><br>
 
 - Filed Cases (Legal Filings, Lawsuits)<br>

@@ -3,7 +3,7 @@
 <i>Accessible Information for Better Servicing in the Arts. Analysis including Perception Guides in "The Business." </i><br>
 
 - Filed Cases (Legal Filings, Lawsuits)<br>
-- Related Cases (Civil, Criminal, Witnesses)<br>
+- Related Cases (Civil, Criminal, Witnesses Involved)<br>
 - Cases Not Litigated (Legal Letters, Social Impact, Strong-Arming, Fixers, Investigators, Others)<br>
 - Similar Cases<br>
  <i>(Golden Era Hollywood to PRESENT)</i>

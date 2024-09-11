@@ -27,7 +27,9 @@ What are <b>Verbatim</b> Transcriptions of Audios? https://audext.com/what-is-a-
 
 - "The Accidential Gangster" - Ori Spado - Hosted by Sally Colón, <b>in Interview</b>: https://www.youtube.com/watch?v=A-63tGhzDes<br>
 Example, did not want to Implicate Artists to Associated Interested Subjects - https://theaccidentalgangster.com<br>
-<b>Implication means going from A to C,</b> without B. The first page mentions Frank Sinatra, however, others frequented nightclubs and social circles.
+<b>Implication means going from A to C,</b> without B. The first page mentions Frank Sinatra, however, others frequented nightclubs and social circles.<br>
+
+- Comedic Metaphor - "Some Like It Hot (1959) Trailer | MGM Studios" - https://www.youtube.com/watch?v=97TYs2YXbJw
 
 <b>Consumer Financial Protection Bureau<br></b>
 https://www.consumerfinance.gov

@@ -23,7 +23,11 @@ https://www.socratic-method.com/quote-meanings-interpretations/william-hazlitt-l
 <br><i>Basics: Perception, Deception, Implication... Pressure.</i>
 
 What are <b>Verbatim</b> Transcriptions of Audios? https://audext.com/what-is-a-verbatim-transcription
+- Metaphor: Fixers Edit into a timeline, to spin into it for production. This can mean records and witnesses changed.
 
 Did not want to Implicate Artists to associated interested subjects - https://theaccidentalgangster.com<br>
-"The Accidential Gangster" - Ori Spado - Hosted by Sally Colón, <b>in Interview</b>: https://www.youtube.com/watch?v=A-63tGhzDes<br>
-Implication means going from A to C, without B. The first page mentions Frank Sinatra, however, others frequented nightclubs and social circles.
+- "The Accidential Gangster" - Ori Spado - Hosted by Sally Colón, <b>in Interview</b>: https://www.youtube.com/watch?v=A-63tGhzDes<br>
+<b>Implication means going from A to C,</b> without B. The first page mentions Frank Sinatra, however, others frequented nightclubs and social circles.
+
+<b>Consumer Financial Protection Bureau<br></b>
+https://www.consumerfinance.gov

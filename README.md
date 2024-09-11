@@ -16,7 +16,7 @@ Status	State	Year	Moving Party	Responding Party	Moving Actions	Responding Action
 </b>
 
 ## <i>Foundational Examples - As Many Cases as Possible with Categories</i>
-Needing Better Quality and Access to services, In Excess of 113 Cases Listed as Foundations,<br>
+Needing Better Quality and Access to services, In Excess of 127 Cases Listed as Foundations,<br>
 <b>Example:</b> Joe DiMaggio <i><b>used</b></i> a private eye to surveil and <i><b>strong-arm</b></i> Marilyn Monroe as divorce granted… LAPD investigated a <b>foiled</b> burglary... <b>Sold</b> the “wrong-door raid” story to Confidential magazine, where it appeared in the September 1955 issue… and, without suspects [witnesses and evidence not in the story], the <b>case</b> faded.<br>
 "California state senator Fred Kraft… cited the incident as an example of “strong-arm” tactics by private eyes in the service of the magazine [and others]." By 1978...
 
@@ -64,4 +64,4 @@ elements to interpersonal communication and issues via readings and film viewing
 (2011 version has cameras on the cover)<br><a href="https://archive.org/details/logiccontemporar0000kaha_b2b5/mode/2up">Full Free Book on Archive Org</a><br>
   - <b>Comedic Metaphor - "Some Like It Hot (1959) Trailer | MGM Studios" - </b> https://www.youtube.com/watch?v=97TYs2YXbJw
 <br>
-<b><i>Now Optimistic for others to build, We will be improving this with cases analysis, as well as knowledge in VISUAL AND PERFORMING ARTS or "Hollywood" Cases, which will increase the quality improvements accessible and to save lives!!</i></b>
+<b><i>Now Optimistic for others to Build - We will be improving this with cases analysis, as well as knowledge in VISUAL AND PERFORMING ARTS or "Hollywood" Cases, which will increase the quality improvements accessible and to save lives!!</i></b>

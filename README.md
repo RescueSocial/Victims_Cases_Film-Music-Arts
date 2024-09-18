@@ -57,7 +57,7 @@ Compare seeing the Cases Components with Modern Re-Takes
 <img src="https://img.youtube.com/vi/DbFi2SnRPT4/0.jpg" width=40% height=40%>
 </a>
 <br>Compare to the Original Trailer's Perspective Vantage Point (Cameras, Looking As a Witness from the Rear Window, Alfred Hitchcock) from Universal Pictures - <i>https://youtu.be/HejJ-yLmf3Y?si=V4Iji07lhB2faZeT</i><br>
-- Watch the Full Movie of Rear Window on <a href="https://archive.org/details/rear.-window.-1954.by-hitchcock.-720p.x-264.-aac.-multisub.mkv-zen-bud">Archive Org</a><br>
+- Watch the Full Movie of Rear Window on <a href="https://archive.org/details/rear.-window.-1954.by-hitchcock.-720p.x-264.-aac.-multisub.mkv-zen-bud">Archive Nonprofit</a><br>
 </b>Comprehensive in the principles and methods of critical thinking and effective communication. Learn the Elements of These Cases and types of
 argument, logic-related impediments and fallacies, elements in respect to cogent reasoning, as well as the methods for recognizing and analyzing argumentative rhetoric and extended arguments. A special emphasis will be on the practical application of the aforementioned
 elements to interpersonal communication and issues via readings and film viewings.<br>

@@ -56,13 +56,13 @@ Compare seeing the Cases Components with Modern Re-Takes
 <a href="https://www.youtube.com/watch?v=DbFi2SnRPT4">
 <img src="https://img.youtube.com/vi/DbFi2SnRPT4/0.jpg" width=40% height=40%>
 </a>
-<br>Compare to the Original Trailer's Perspective Vantage Point (Cameras, Looking As a Witness from the Rear Window, Alfred Hitchcock) from Universal Pictures - <i>https://youtu.be/HejJ-yLmf3Y?si=V4Iji07lhB2faZeT</i>
-<br></b>Comprehensive in the principles and methods of critical thinking and effective communication. Learn the Elements of These Cases and types of
+<br>Compare to the Original Trailer's Perspective Vantage Point (Cameras, Looking As a Witness from the Rear Window, Alfred Hitchcock) from Universal Pictures - <i>https://youtu.be/HejJ-yLmf3Y?si=V4Iji07lhB2faZeT</i><br>
+- Watch the Full Movie of Rear Window on <a href="https://archive.org/details/rear.-window.-1954.by-hitchcock.-720p.x-264.-aac.-multisub.mkv-zen-bud">Archive Org</a><br>
+</b>Comprehensive in the principles and methods of critical thinking and effective communication. Learn the Elements of These Cases and types of
 argument, logic-related impediments and fallacies, elements in respect to cogent reasoning, as well as the methods for recognizing and analyzing argumentative rhetoric and extended arguments. A special emphasis will be on the practical application of the aforementioned
 elements to interpersonal communication and issues via readings and film viewings.<br>
 - Logic and Contemporary Rhetoric: The Use of Reason in Everyday Life
 (2011 version has cameras on the cover)<br><a href="https://archive.org/details/logiccontemporar0000kaha_b2b5/mode/2up">Full Free Book on Archive Org</a><br>
-- Watch the Full Movie of Rear Window on <a href="https://archive.org/details/rear.-window.-1954.by-hitchcock.-720p.x-264.-aac.-multisub.mkv-zen-bud">Archive Org</a><br>
   - <b>Comedic Metaphor - Some Like It Hot (1959) Trailer | MGM Studios - showing musician witnesses escaping to another state - </b> https://www.youtube.com/watch?v=97TYs2YXbJw<br>
 
 ## Cases Related to the Arts:

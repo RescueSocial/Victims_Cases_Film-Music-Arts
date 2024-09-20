@@ -32,7 +32,7 @@ Example, did not want to Implicate Artists to Associated Interested Subjects - h
 
 - Comedic Metaphor: "Some Like It Hot (1959) Trailer | MGM Studios" - https://www.youtube.com/watch?v=97TYs2YXbJw
 
-See this Example Interview, Molly Bloom, the writer behind the movie.
+See this <b>Example Interview</b>, Molly Bloom, the writer behind the movie.
 <br>Focused in on Molly Bloom for implications through received information, she would have given information if she witnessed elements of coercive activities.
 <br><i>"A-List (artists), wall-street titans, famous sports stars, (billionaires-finances), heads of studios, politicians, you know some of the most powerful people in the world and it was the company everyone wanted to be in..."<br></i>
 See Molly's Game | On-set visit with Molly Bloom "Writer": https://www.youtube.com/watch?v=XCb4DJ7qfN0

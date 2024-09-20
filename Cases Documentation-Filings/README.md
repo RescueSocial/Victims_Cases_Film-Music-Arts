@@ -58,7 +58,8 @@ Dial M (1954) - A Fantastic Story Scene (9/10) | Movieclips<br>
 <img src="https://img.youtube.com/vi/tUiVEKK8rWM/0.jpg" width=40% height=40%></a><br>
 - Watch To Catch a Thief (1955) Grace Kelly & Cary Grant Walking Scene (Purchase Full Movie)<br>
 <a href="https://www.youtube.com/watch?v=HMeQ99Pyd5w">
-<img src="https://img.youtube.com/vi/HMeQ99Pyd5w/0.jpg" width=40% height=40%></a><br> 
+<img src="https://img.youtube.com/vi/HMeQ99Pyd5w/0.jpg" width=40% height=40%></a><br>
+## Improvements to Cases in the Arts
 <br>What is New York's Molineux Rule regarding Witnesses? Comparing to Federal Rule of Evidence 413 - <i><a href="https://lawreview.syr.edu/the-molineux-rule-how-this-exception-to-the-rules-of-evidence-could-impact-the-harvey-weinstein-trial/">Contemporary Preanalysis of Molineux Rule Regarding Arts Cases</a></i>
 
 

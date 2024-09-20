@@ -47,6 +47,6 @@ elements to interpersonal communication and issues via readings and film viewing
 
 ## Educational Movie to Witnessing and Documentation of Elements
 James Stewart Takes A Peek | 'Rear Window' (1954) | Hitchcock Presents<br>
-Jeff (James Stewart) starts to (witness elements), as he gets even closer to his neightbour's apartment with his telephoto lense.<br>
+Jeff (James Stewart) starts to (witness elements), as he gets even closer to his neighbour's apartment with his (eye-witnessing in comparison to the telephoto lense).<br>
 <a href="https://www.youtube.com/watch?v=ES5A-8mXvOU">
 <img src="https://img.youtube.com/vi/ES5A-8mXvOU/0.jpg" width=40% height=40%>

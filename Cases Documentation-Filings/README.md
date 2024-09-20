@@ -45,13 +45,13 @@ elements to interpersonal communication and issues via readings and film viewing
 (2011 version has cameras on the cover)<br><a href="https://archive.org/details/logiccontemporar0000kaha_b2b5/mode/2up">Full Free Book on Archive Org</a>
 
 ## Comparison of Educational Movies to Witnessing and Documentation of Elements
-James Stewart Takes A Peek | 'Rear Window' (1954) | Hitchcock Presents<br>
+</b>James Stewart Takes A Peek | 'Rear Window' (1954) | Hitchcock Presents<br>
 Jeff (James Stewart) starts to (witness elements), as he gets even closer to his neighbour's apartment with his (eye-witnessing in comparison to the telephoto lense).<br>
 <a href="https://www.youtube.com/watch?v=ES5A-8mXvOU">
 <img src="https://img.youtube.com/vi/ES5A-8mXvOU/0.jpg" width=40% height=40%>
-Dial M Scene: Discovery of Bribery, Coercion, Object Tampering, then Finances Reviewed by Investigator<br>
+- Dial M Scene: Discovery of Bribery, Coercion, Object Tampering, then Finances Reviewed by Investigator<br>
 <br>Dial M for Murder (1954) - A Fantastic Story Scene (9/10) | Movieclips
 <a href="https://www.youtube.com/watch?v=tUiVEKK8rWM">
-<img src="https://img.youtube.com/vi/ES5A-8mXvOU/0.jpg" width=40% height=40%>
+<img src="https://img.youtube.com/vi/tUiVEKK8rWM/0.jpg" width=40% height=40%>
 - Watch the Full Movie of Rear Window on <a href="https://archive.org/details/rear.-window.-1954.by-hitchcock.-720p.x-264.-aac.-multisub.mkv-zen-bud">Archive Nonprofit</a><br>
 - Watch Full Movie of Dial M on <a href="https://archive.org/details/dial.-m.-for.-murder.-1954.720p.-br-rip.x-264.-yify">Archive Nonprofit</a>

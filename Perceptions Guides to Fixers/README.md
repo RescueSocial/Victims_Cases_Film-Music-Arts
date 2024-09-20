@@ -28,8 +28,12 @@ What are <b>Verbatim</b> Transcriptions of Audios? https://audext.com/what-is-a-
 - "The Accidential Gangster" - Ori Spado - Hosted by Sally Colón, <b>in Interview</b>: https://www.youtube.com/watch?v=A-63tGhzDes<br>
 Example, did not want to Implicate Artists to Associated Interested Subjects - https://theaccidentalgangster.com<br>
 <b>Implication means going from A to C,</b> without B. The first page mentions Frank Sinatra, however, others frequented nightclubs and social circles.<br>
+[![Hollywood Accidental Gangster](https://img.youtube.com/vi/A-63tGhzDes/0.jpg)](https://www.youtube.com/watch?v=A-63tGhzDes)
 
 - Comedic Metaphor: "Some Like It Hot (1959) Trailer | MGM Studios" - https://www.youtube.com/watch?v=97TYs2YXbJw
+
+See this Example Interview, Molly Bloom, the writer behind the movie. Focused in on Molly Bloom for implications through received information, she would have given information if she witnessed elements of coercive activities. "A-List (artists), wall-street titans, famous sports stars, (billionaires-finances), heads of studios, politicians, you know some of the most powerful people in the world and it was the company everyone wanted to be in..."<br>
+[![Molly Bloom Writer](https://img.youtube.com/vi/A-63tGhzDes/0.jpg)](https://www.youtube.com/watch?v=A-63tGhzDes)
 
 <b>Consumer Financial Protection Bureau<br></b>
 https://www.consumerfinance.gov

@@ -2,7 +2,7 @@
 
 What are Logicial Fallacies? https://www.logicalfallacies.org
 
-Perception Profiling - Positive Profiling and Negative Profiling 
+Perception Profiling - Positive Profiling and Negative Profiling
 
 Perception Profiling is very aware of vantage points, and a person can try to predict the reaction to the profiling and the actions with the profiling.
 
@@ -65,5 +65,5 @@ Dial M (1954) - A Very Serious Position Scene (7/10) | Movieclips<br>
 [![Movie Dial M](https://img.youtube.com/vi/DaWi5EoJVGA/0.jpg)](https://www.youtube.com/watch?v=DaWi5EoJVGA)
 
 ## <i>Compare History of California Perspective to Arts Cases to Federal or New York</i>
-Compare with Conflicts of Interests (check cases lists)
+Compare with Conflicts of Interests and check cases lists
 

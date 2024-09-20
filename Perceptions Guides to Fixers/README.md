@@ -2,7 +2,7 @@
 
 What are Logicial Fallacies? https://www.logicalfallacies.org
 
-Perception Profiling - Positive Profiling and Negative Profiling
+Perception Profiling - Positive Profiling and Negative Profiling 
 
 Perception Profiling is very aware of vantage points, and a person can try to predict the reaction to the profiling and the actions with the profiling.
 

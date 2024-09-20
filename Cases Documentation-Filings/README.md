@@ -43,8 +43,9 @@ Compare seeing the Cases Components with Modern Re-Takes
 elements to interpersonal communication and issues via readings and film viewings.<br>
 - Logic and Contemporary Rhetoric: The Use of Reason in Everyday Life
 (2011 version has cameras on the cover)<br><a href="https://archive.org/details/logiccontemporar0000kaha_b2b5/mode/2up">Full Free Book on Archive Org</a>
+- Watch the Full Movie of Rear Window on <a href="https://archive.org/details/rear.-window.-1954.by-hitchcock.-720p.x-264.-aac.-multisub.mkv-zen-bud">Archive Nonprofit</a><br>
 
-## Educational Movie Scene to Witnessing and Documentation of Elements
+## Educational Movie to Witnessing and Documentation of Elements
 James Stewart Takes A Peek | 'Rear Window' (1954) | Hitchcock Presents<br>
 Jeff (James Stewart) starts to suspect, as he gets even closer to his neightbour's apartment with his (witnessing) telephoto lense.<br>
 <a href="https://www.youtube.com/watch?v=ES5A-8mXvOU">

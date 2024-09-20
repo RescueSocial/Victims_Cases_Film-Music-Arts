@@ -49,4 +49,4 @@ Showing Musician Witnesses and Marilyn Monroe<br>
 <br>Actually, the link to see <i>Witnesses is in the Trailer, and to see Musicians is in this clip of Some Like it Hot (1959) | Meet Sugar Kane | MGM Studios</i> is here: https://www.youtube.com/watch?v=tzuXce0OLfo
 
 - See The Impact of <i>Witness Withholding Testimony in - Kim Novak - Witness Appears During Trial - Notorious Landlady Movie Scene<i>:
-<br>https://www.youtube.com/watch?v=beYn6CB3eDA
+https://www.youtube.com/watch?v=beYn6CB3eDA

@@ -54,14 +54,16 @@ Showing Musician Witnesses and Marilyn Monroe<br>
 [![Some Like it Hot Marilyn Monroe and Witnesses or Mob](https://img.youtube.com/vi/NYWv8bRnODc/0.jpg)](https://www.youtube.com/watch?v=97TYs2YXbJw)
 <br>Actually, the link to see <i>Witnesses is in the Trailer, and to see Musicians is in this clip of Some Like it Hot (1959) | Meet Sugar Kane | MGM Studios</i> is here: https://www.youtube.com/watch?v=tzuXce0OLfo
 
-## Educational Movie
+## Educational Movie Sequence
 The Sequence here of the Importance of Having a Case Against "Fixing"<br>
 Dial M (1954) - Scene Beginning of Alleged "Sensible Idea" (1/10) | Movieclips<br>
 [![Movie Dial M](https://img.youtube.com/vi/LWIAWDjHhx4/0.jpg)](https://www.youtube.com/watch?v=LWIAWDjHhx4)<br>
 Dial M (1954) - Your Word Against Mine Scene (2/10) | Movieclips<br>
 [![Movie Dial M](https://img.youtube.com/vi/Igs1WM2pA54/0.jpg)](https://www.youtube.com/watch?v=Igs1WM2pA54)<br>
-(After Coercion and Without Witness, Now Focusing on a Letter, Tampered Objects)<br>
+- After Coercion and Without Witness, Now Focusing on a Letter, Tampered Objects<br>
 Dial M (1954) - A Very Serious Position Scene (7/10) | Movieclips<br>
 [![Movie Dial M](https://img.youtube.com/vi/DaWi5EoJVGA/0.jpg)](https://www.youtube.com/watch?v=DaWi5EoJVGA)
+
 ### <i>Compare History of California Perspective to Arts Cases to Federal or New York</i>
+Compare with Conflicts of Interests (check cases lists)
 

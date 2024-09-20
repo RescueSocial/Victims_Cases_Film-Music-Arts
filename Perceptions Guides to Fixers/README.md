@@ -51,7 +51,7 @@ Showing Musician Witnesses and Marilyn Monroe<br>
 See The Impact of <i>Witnesses Withholding Testimony in Scene with Kim Novak -
 <br>Witness Appears During Trial from the Movie Notorious Landlady<i>: https://www.youtube.com/watch?v=beYn6CB3eDA<br>
 Full Movie of The Notorious Landlady: https://youtu.be/RCalnALx1bM<br>
-<i></b>Film: "The Notorious Landlady" (1962): When her (insert here), Carly Hardwicke (Kim Novak) finds it impossible to rent a room in her London apartment, since everyone assumes... Recently arrived American diplomat William Gridley (Jack Lemmon), however, has no idea about her...</i><br>
+<i></b>"The Notorious Landlady" (1962): When her (event here), Carly Hardwicke (Kim Novak) finds it impossible to rent a room in her London apartment, since everyone assumes... Recently arrived American diplomat William Gridley (Jack Lemmon), however, has no idea about her...</i><br>
 [![Full Movie Kim Novak Jack Lemmon](https://img.youtube.com/vi/RCalnALx1bM/0.jpg)](https://youtu.be/RCalnALx1bM)
 
 

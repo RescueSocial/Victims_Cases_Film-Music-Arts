@@ -64,6 +64,6 @@ Dial M (1954) - Your Word Against Mine Scene (2/10) | Movieclips<br>
 Dial M (1954) - A Very Serious Position Scene (7/10) | Movieclips<br>
 [![Movie Dial M](https://img.youtube.com/vi/DaWi5EoJVGA/0.jpg)](https://www.youtube.com/watch?v=DaWi5EoJVGA)
 
-### <i>Compare History of California Perspective to Arts Cases to Federal or New York</i>
+## <i>Compare History of California Perspective to Arts Cases to Federal or New York</i>
 Compare with Conflicts of Interests (check cases lists)
 

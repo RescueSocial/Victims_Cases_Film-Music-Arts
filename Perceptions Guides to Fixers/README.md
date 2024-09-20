@@ -48,5 +48,8 @@ Showing Musician Witnesses and Marilyn Monroe<br>
 [![Some Like it Hot Marilyn Monroe and Witnesses or Mob](https://img.youtube.com/vi/NYWv8bRnODc/0.jpg)](https://www.youtube.com/watch?v=97TYs2YXbJw)
 <br>Actually, the link to see <i>Witnesses is in the Trailer, and to see Musicians is in this clip of Some Like it Hot (1959) | Meet Sugar Kane | MGM Studios</i> is here: https://www.youtube.com/watch?v=tzuXce0OLfo
 
-- See The Impact of <i>Witness Withholding Testimony in - Kim Novak - Witness Appears During Trial - Notorious Landlady Movie Scene<i>:
-https://www.youtube.com/watch?v=beYn6CB3eDA
+- See The Impact of <i>Witness Withholding Testimony in Scene with Kim Novak - Witness Appears During Trial from the Movie Notorious Landlady<i>: https://www.youtube.com/watch?v=beYn6CB3eDA
+Full Movie of The Notorious Landlady: https://youtu.be/RCalnALx1bM
+[![Full Movie Kim Novak Jack Lemmon](https://img.youtube.com/vi/RCalnALx1bM/0.jpg)](https://youtu.be/RCalnALx1bM)
+<br><i>"The Notorious Landlady" (1962): When her husband disappears, Carly Hardwicke (Kim Novak) finds it impossible to rent a room in her London apartment, since everyone assumes she's a murderer. Recently arrived American diplomat William Gridley (Jack Lemmon), however, has no idea about her reputation. Sparks fly between the pair, and Gridley rents the room. When his boss, Franklyn Ambruster (Fred Astaire), learns what Gridley has blundered into, he reproves him until he meets the lovely Carly. The two men try to clear her name.</i>
+

@@ -31,6 +31,8 @@ Example, did not want to Implicate Artists to Associated Interested Subjects - h
 [![Hollywood Accidental Gangster](https://img.youtube.com/vi/A-63tGhzDes/0.jpg)](https://www.youtube.com/watch?v=A-63tGhzDes)
 
 - Comedic Metaphor: "Some Like It Hot (1959) Trailer | MGM Studios" - https://www.youtube.com/watch?v=97TYs2YXbJw
+[![Some Like it Hot Marilyn Monroe and Witnesses or Mob](https://img.youtube.com/vi/NYWv8bRnODc/0.jpg)](https://www.youtube.com/watch?v=97TYs2YXbJw)
+<br>Actually, the link to see <i>Witnesses and Musicians in Some Like it Hot (1959) | Meet Sugar Kane | MGM Studios</i> is here: https://www.youtube.com/watch?v=tzuXce0OLfo
 
 See this <b>Example Interview</b>, Molly Bloom, the writer behind the movie.
 <br>Focused in on Molly Bloom for implications through received information, she would have given information if she witnessed elements of coercive activities.

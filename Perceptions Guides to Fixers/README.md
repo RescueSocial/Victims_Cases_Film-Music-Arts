@@ -60,8 +60,8 @@ Dial M (1954) - Scene Beginning of Alleged "Sensible Idea" (1/10) | Movieclips<b
 [![Movie Dial M](https://img.youtube.com/vi/LWIAWDjHhx4/0.jpg)](https://www.youtube.com/watch?v=LWIAWDjHhx4)<br>
 Dial M (1954) - Your Word Against Mine Scene (2/10) | Movieclips<br>
 [![Movie Dial M](https://img.youtube.com/vi/Igs1WM2pA54/0.jpg)](https://www.youtube.com/watch?v=Igs1WM2pA54)<br>
+(After Coercion and Without Witness, Now Focusing on a Letter, Tampered Objects)<br>
 Dial M (1954) - A Very Serious Position Scene (7/10) | Movieclips<br>
-(Without Witness, Now Focusing on a Letter, Tampered Objects)<br>
 [![Movie Dial M](https://img.youtube.com/vi/DaWi5EoJVGA/0.jpg)](https://www.youtube.com/watch?v=DaWi5EoJVGA)
-## <br><i>Compare History of California Perspective to Arts Cases to Federal or New York</i>
+### <i>Compare History of California Perspective to Arts Cases to Federal or New York</i>
 

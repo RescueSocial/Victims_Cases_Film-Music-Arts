@@ -54,5 +54,10 @@ Showing Musician Witnesses and Marilyn Monroe<br>
 [![Some Like it Hot Marilyn Monroe and Witnesses or Mob](https://img.youtube.com/vi/NYWv8bRnODc/0.jpg)](https://www.youtube.com/watch?v=97TYs2YXbJw)
 <br>Actually, the link to see <i>Witnesses is in the Trailer, and to see Musicians is in this clip of Some Like it Hot (1959) | Meet Sugar Kane | MGM Studios</i> is here: https://www.youtube.com/watch?v=tzuXce0OLfo
 
-
+## Educational Movie
+The Sequence here of the Importance of Having a Case Against "Fixing"<br>
+Dial M (1954) - Scene Beginning of "Sensible Idea" (1/10) | Movieclips<br>
+[![Movie Dial M](https://img.youtube.com/vi/LWIAWDjHhx4/0.jpg)](https://www.youtube.com/watch?v=LWIAWDjHhx4)<br>
+Dial M (1954) - Your Word Against Mine Scene (2/10) | Movieclips<br>
+[![Movie Dial M](https://img.youtube.com/vi/LWIAWDjHhx4/0.jpg)](https://www.youtube.com/watch?v=LWIAWDjHhx4)
 

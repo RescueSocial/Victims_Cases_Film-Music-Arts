@@ -37,10 +37,11 @@ See Molly's Game | On-set visit with Molly Bloom "Writer": https://www.youtube.c
 [![Molly Bloom Socialite](https://img.youtube.com/vi/tzuXce0OLfo/0.jpg)](https://www.youtube.com/watch?v=XCb4DJ7qfN0)
 <br>Actually, the link to see 'Molly's Game' Inspiration Molly Bloom Chats with Ellen is here: https://www.youtube.com/watch?v=tzuXce0OLfo
 
-- Comedic Metaphor: "Some Like It Hot (1959) Trailer | MGM Studios" - https://www.youtube.com/watch?v=97TYs2YXbJw
-Showing musician witnesses and Marilyn Monroe
+<b>Consumer Financial Protection Bureau<br></b>
+https://www.consumerfinance.gov
+
+Comedic Metaphor: "Some Like It Hot (1959) Trailer | MGM Studios" - https://www.youtube.com/watch?v=97TYs2YXbJw<b>
+Showing musician witnesses and Marilyn Monroe<br>
 [![Some Like it Hot Marilyn Monroe and Witnesses or Mob](https://img.youtube.com/vi/NYWv8bRnODc/0.jpg)](https://www.youtube.com/watch?v=97TYs2YXbJw)
 <br>Actually, the link to see <i>Witnesses and Musicians in Some Like it Hot (1959) | Meet Sugar Kane | MGM Studios</i> is here: https://www.youtube.com/watch?v=tzuXce0OLfo
 
-<b>Consumer Financial Protection Bureau<br></b>
-https://www.consumerfinance.gov

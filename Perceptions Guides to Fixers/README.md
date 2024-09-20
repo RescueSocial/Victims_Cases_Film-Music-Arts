@@ -43,5 +43,5 @@ https://www.consumerfinance.gov
 Comedic Metaphor: "Some Like It Hot (1959) Trailer | MGM Studios" - https://www.youtube.com/watch?v=97TYs2YXbJw<b><br>
 Showing musician witnesses and Marilyn Monroe<br>
 [![Some Like it Hot Marilyn Monroe and Witnesses or Mob](https://img.youtube.com/vi/NYWv8bRnODc/0.jpg)](https://www.youtube.com/watch?v=97TYs2YXbJw)
-<br>Actually, the link to see <i>Witnesses and Musicians in Some Like it Hot (1959) | Meet Sugar Kane | MGM Studios</i> is here: https://www.youtube.com/watch?v=tzuXce0OLfo
+<br>Actually, the link to see <i>Witnesses is in the Trailer, and to see Musicians is in this clip of Some Like it Hot (1959) | Meet Sugar Kane | MGM Studios</i> is here: https://www.youtube.com/watch?v=tzuXce0OLfo
 

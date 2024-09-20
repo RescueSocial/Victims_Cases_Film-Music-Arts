@@ -23,11 +23,9 @@ https://www.socratic-method.com/quote-meanings-interpretations/william-hazlitt-l
 <br><i>Basics: Perception, Deception, Implication... Pressure.</i>
 
 What are <b>Verbatim</b> Transcriptions of Audios? https://audext.com/what-is-a-verbatim-transcription
-- What is Falsus in uno, falsus in omnibus? It is related to Witness Testimony And Fixers.
-<br><i>In 1809, Lord Ellenborough rejected a categorical application of (this fallacy)</i>, stating that "though a person may be proved on his own shewing, or by other evidence, to have foresworn himself as to a particular fact; it does not follow that he can never afterwards feel the obligation of an oath."
-<br>https://en.wikipedia.org/wiki/Falsus_in_uno,_falsus_in_omnibus
-
 - Metaphor: Fixers Edit into a timeline, to spin into it for production. This can mean records and witnesses changed.
+- What is Falsus in uno, falsus in omnibus? It is related to Witness Testimony And Fixers.
+<br><i>In 1809, Lord Ellenborough rejected a categorical application of (this fallacy)</i>, stating that "though a person may be proved on his own shewing, or by other evidence, to have foresworn himself as to a particular fact; it does not follow that he can never afterwards feel the obligation of an oath." https://en.wikipedia.org/wiki/Falsus_in_uno,_falsus_in_omnibus
 
 - "The Accidential Gangster" - Ori Spado - Hosted by Sally Colón, <b>in Interview</b>: https://www.youtube.com/watch?v=A-63tGhzDes<br>
 Example, did not want to Implicate Artists to Associated Interested Subjects - https://theaccidentalgangster.com<br>

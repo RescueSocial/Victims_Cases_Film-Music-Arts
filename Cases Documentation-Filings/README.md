@@ -44,7 +44,7 @@ elements to interpersonal communication and issues via readings and film viewing
 - Logic and Contemporary Rhetoric: The Use of Reason in Everyday Life
 (2011 version has cameras on the cover)<br><a href="https://archive.org/details/logiccontemporar0000kaha_b2b5/mode/2up">Full Free Book on Archive Org</a>
 
-## Educational Movie to Witnessing and Documentation of Elements
+## Comparison of Educational Movie to Witnessing and Documentation of Elements
 James Stewart Takes A Peek | 'Rear Window' (1954) | Hitchcock Presents<br>
 Jeff (James Stewart) starts to (witness elements), as he gets even closer to his neighbour's apartment with his (eye-witnessing in comparison to the telephoto lense).<br>
 <a href="https://www.youtube.com/watch?v=ES5A-8mXvOU">

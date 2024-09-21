@@ -19,7 +19,7 @@ Status	State	Year	Moving Party	Responding Party	Moving Actions	Responding Action
 ## <i>Foundational Examples - As Many Cases as Possible with Categories</i>
 <b>*Needing <i>Better Quality, Access to Services, and Better Lives</i> in the Arts, beyond 165 Cases Listed as Foundations,<br></b>
 <i><b> - * Cases shown of people resisting exploitation in the <a href="https://youtu.be/YW1yH-bTWi8">film</a><br></b>
-<b>Example of "Confidential" Magazine Documentary with Fixer Fred Otash:</b><br>
+<b>Example of "Confidential" Magazine Documentary with Fixer Fred Otash:</b><br></i>
 [![Confidential Documentary](https://img.youtube.com/vi/YW1yH-bTWi8/0.jpg)](https://youtu.be/YW1yH-bTWi8)<br>
 
 <b>Starting Example:</b> Joe DiMaggio <i><b>used</b></i> a private eye to surveil and <i><b>strong-arm</b></i> Marilyn Monroe as divorce granted <b>(Overlapping Legal Claim)</b>… LAPD investigated a <b>foiled</b> burglary... <b>Sold</b> the “wrong-door raid” story to Confidential magazine, where it appeared in the September 1955 issue… and, without suspects [witnesses and evidence not in the story], the <b>case</b> faded.<br>

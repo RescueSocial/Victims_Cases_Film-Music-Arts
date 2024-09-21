@@ -55,7 +55,7 @@ Jeff (James Stewart) starts to (witness elements), as he gets even closer to his
 - Dial M (1954) - Scene Revealing Set Up (9/10) | Movieclips<br>
 <a href="https://www.youtube.com/watch?v=tUiVEKK8rWM">
 <img src="https://img.youtube.com/vi/tUiVEKK8rWM/0.jpg" width=40% height=40%></a><br>
-- Dial M Scene- Discovery of Coercion, Bribery, Object Tampering, then Finances Reviewed by Investigator<br>
+Dial M Scene- Discovery of Coercion, Bribery, Object Tampering, then Finances Reviewed by Investigator<br>
 - Watch To Catch a Thief (1955) Grace Kelly & Cary Grant Walking Scene (Purchase Full Movie)<br>
 <a href="https://www.youtube.com/watch?v=HMeQ99Pyd5w">
 <img src="https://img.youtube.com/vi/HMeQ99Pyd5w/0.jpg" width=40% height=40%></a><br><i>

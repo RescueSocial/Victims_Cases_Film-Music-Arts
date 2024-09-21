@@ -18,7 +18,7 @@ Status	State	Year	Moving Party	Responding Party	Moving Actions	Responding Action
 
 ## <i>Foundational Examples - As Many Cases as Possible with Categories</i>
 <b>Needing Better Quality, Access to Services, and Better Lives in the Arts, beyond 165 Cases Listed as Foundations,<br></b>
-<b>For Example:</b> In California, Joe DiMaggio <i><b>used</b></i> a private eye to surveil and <i><b>strong-arm</b></i> Marilyn Monroe as divorce granted <b>(Overlapping Legal Claim)<b/>… LAPD investigated a <b>foiled</b> burglary... <b>Sold</b> the “wrong-door raid” story to Confidential magazine, where it appeared in the September 1955 issue… and, without suspects [witnesses and evidence not in the story], the <b>case</b> faded.<br>
+<b>For Example:</b> In California, Joe DiMaggio <i><b>used</b></i> a private eye to surveil and <i><b>strong-arm</b></i> Marilyn Monroe as divorce granted <b>(Overlapping Legal Claim)</b>… LAPD investigated a <b>foiled</b> burglary... <b>Sold</b> the “wrong-door raid” story to Confidential magazine, where it appeared in the September 1955 issue… and, without suspects [witnesses and evidence not in the story], the <b>case</b> faded.<br>
 <b>"California</b> state senator Fred Kraft… cited the incident as an example of “strong-arm” tactics by private eyes in the service of the magazine [and others]." By 1978 to Today...
 
 <b>This is highly useful for people who need to see Conflicts of Interests as well as to Encourage Assistance from anywhere to study this more in a Fair and Just way that provides Guidance.</b>

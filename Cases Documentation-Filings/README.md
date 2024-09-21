@@ -47,7 +47,7 @@ elements to interpersonal communication and issues via readings and film viewing
 ## Comparison of Educational Movies to Assist Importance of Better Cases
 <b>Three Alfred Hitchcock Movies on Critical Thinking About Witnessing and Documentation of Elements:</b><br>
 (1) </b>James Stewart (Witnesses) | 'Rear Window' (1954) | Hitchcock Presents<br>
-Jeff (James Stewart) starts to (witness elements) with eye-witnessing -- Compare to the telephoto lense.<br>
+Jeff (James Stewart) starts to Witness Elements with Eye-witnessing, Compare to the camerera.<br>
 <a href="https://www.youtube.com/watch?v=ES5A-8mXvOU">
 <img src="https://img.youtube.com/vi/ES5A-8mXvOU/0.jpg" width=40% height=40%></a><br>
 (2) Dial M (1954) - Scene Revealing Set Up by Alleged "Fantastic Story" (9/10) | Movieclips<br>

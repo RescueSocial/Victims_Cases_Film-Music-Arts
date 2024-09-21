@@ -7,7 +7,7 @@
 - Related Cases (Civil, Criminal, Witnesses Involved)<br>
 - Cases Not Litigated (Legal Letters, Social Impact, Strong-Arming, Fixers, Investigators, Others)<br>
 - Similar Cases<br>
- <i>(Golden Era Hollywood to PRESENT)</i>
+ <i>(Golden Era Hollywood to PRESENT)</i> 
 
 Example:<br>
 <b>

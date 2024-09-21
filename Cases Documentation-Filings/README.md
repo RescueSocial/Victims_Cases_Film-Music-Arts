@@ -28,7 +28,7 @@ Joe DiMaggio <i><b>used</b></i> a private eye to surveil and <i><b>strong-arm</b
 
 ## <b>Improve Legislation and Comparisons </i>
 <i>Comparing Legislation Improvements for U.S. Laws, for example to <a href="https://newyork.public.law/laws/n.y._penal_law_section_135.60">New York</a>
-<br>The Coercion Law Relates to the Arts with, for example, "or withhold testimony or information with respect to another’s legal claim or defense" and "or another actor will."</i>
+<br>The Coercion Law Relates to the Arts with, for example, "or another actor will" and "or withhold testimony or information with respect to another’s legal claim or defense"</i>
 
 ## <i>Critical Thinking and Contemporary Rhetoric Comparisons</i>
 <i>Film Use Is Mentioned for Vantage Points, although "High Noon" from Golden Hollywood is not mentioned, for better Logic and Contemporary Rhetoric:

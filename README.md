@@ -21,7 +21,8 @@ Status	State	Year	Moving Party	Responding Party	Moving Actions	Responding Action
 <i><b>* Cases shown of people Resisting Exploitation in the <a href="https://youtu.be/YW1yH-bTWi8">film</a><br></b>
 <b>Example of "Confidential" Magazine Documentary with Fixer Fred Otash:</b><br></i>
 [![Confidential Documentary](https://img.youtube.com/vi/YW1yH-bTWi8/0.jpg)](https://youtu.be/YW1yH-bTWi8)<br>
-<b><i>Starting Example, for understanding:</i></b> Joe DiMaggio <i><b>used</b></i> a private eye to surveil and <i><b>strong-arm</b></i> Marilyn Monroe as divorce granted <b>(Overlapping Legal Claim)</b>… LAPD investigated a <b>foiled</b> burglary... <b>Sold</b> the “wrong-door raid” story to Confidential magazine, where it appeared in the September 1955 issue… and, without suspects [witnesses and evidence not in the story], the <b>case</b> faded.<br>
+<b><i>Starting Example, for understanding:</i></b><br>
+Joe DiMaggio <i><b>used</b></i> a private eye to surveil and <i><b>strong-arm</b></i> Marilyn Monroe as divorce granted <b>(Overlapping Legal Claim)</b>… LAPD investigated a <b>foiled</b> burglary... <b>Sold</b> the “wrong-door raid” story to Confidential magazine, where it appeared in the September 1955 issue… and, without suspects [witnesses and evidence not in the story], the <b>case</b> faded.<br>
 <i>"<b>California</b> state senator Fred Kraft… cited the incident as an example of “strong-arm” <b>tactics</b> by private eyes in the service of the magazine <b>[and others]</b>."</i> By 1978 to <i>Today</i>...
 
 ## Conflicts of Interests and Encouraging Assistance

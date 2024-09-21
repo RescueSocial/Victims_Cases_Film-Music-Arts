@@ -50,7 +50,7 @@ NOTE: Moving Parties and Responding Parties does not necessarily declare absolut
 <br>The Coercion Law Relates to the Arts with, for example, "or another actor will" and "or withhold testimony or information with respect to another’s legal claim or defense"</i>
 
 ## <i>Critical Thinking and Contemporary Rhetoric Comparisons</i>
-<i>Film Use Is Mentioned for Vantage Points, although "High Noon" from Golden Hollywood is not mentioned, for better Logic and Contemporary Rhetoric:
+<i><b>Film Use Is Mentioned for Vantage Points, although "High Noon" from Golden Hollywood is not mentioned, for better Logic and Contemporary Rhetoric:</b>
 - </b>Additional emphasis will be via the use of films that illustrate the material. Critical response for improvements based on case readings and films
 <b>
 Compare seeing the Cases Components with Modern Re-Takes

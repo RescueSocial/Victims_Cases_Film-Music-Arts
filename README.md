@@ -54,7 +54,7 @@ Comparing Legislation Improvements for U.S. Laws, for example to <a href="https:
 
 ## <i>Critical Thinking and Contemporary Rhetoric Comparisons</i>
 <b>Film Use Is Mentioned for Vantage Points, although "High Noon" from Golden Hollywood is not mentioned, for better Logic and Contemporary Rhetoric:</b>
-- </b>Additional emphasis will be via the use of films that illustrate the material. Critical response for improvements based on case readings and films
+- </b><i>Additional emphasis will be via the use of films that illustrate the material. Critical response for improvements based on case readings and films</i>
 <b>
 Compare seeing the Cases Components with Modern Re-Takes
 <br><a href="https://www.youtube.com/watch?v=DbFi2SnRPT4">Modern</a> Trailer of Rear Window (1954) - James Stewart, Grace Kelly<br>

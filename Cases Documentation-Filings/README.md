@@ -50,14 +50,14 @@ elements to interpersonal communication and issues via readings and film viewing
 Jeff (James Stewart) starts to Witness Elements with Eye-witnessing, Compare to the camerera.<br>
 <a href="https://www.youtube.com/watch?v=ES5A-8mXvOU">
 <img src="https://img.youtube.com/vi/ES5A-8mXvOU/0.jpg" width=40% height=40%></a><br>
-(2) Dial M (1954) - Scene Revealing Set Up by Alleged "Fantastic Story" (9/10) | Movieclips<br>
-Dial M Scene - Discovery of Coercion, Bribery, Object Tampering, Then Finances Reviewed by Investigator<br>
-<a href="https://www.youtube.com/watch?v=tUiVEKK8rWM">
-<img src="https://img.youtube.com/vi/tUiVEKK8rWM/0.jpg" width=40% height=40%></a><br>
-(3) Third Movie is To Catch a Thief (1955) Grace Kelly & Cary Grant Walking Scene
+(2) Second Movie is To Catch a Thief (1955) Grace Kelly & Cary Grant Walking Scene
 <br>Discussing Finances (Have to Purchase Full Movie)<br>
 <a href="https://www.youtube.com/watch?v=HMeQ99Pyd5w">
 <img src="https://img.youtube.com/vi/HMeQ99Pyd5w/0.jpg" width=40% height=40%></a><br><i><br>
+(3) Dial M (1954) - Scene Revealing Alleged "Fantastic Story" (9/10) | Movieclips<br>
+Dial M Scene - Discovery of Coercion, Bribery, Object Tampering, Then Finances Reviewed by Investigator<br>
+<a href="https://www.youtube.com/watch?v=tUiVEKK8rWM">
+<img src="https://img.youtube.com/vi/tUiVEKK8rWM/0.jpg" width=40% height=40%></a><br>
 - Watch the Full Movie of Rear Window on <a href="https://archive.org/details/rear.-window.-1954.by-hitchcock.-720p.x-264.-aac.-multisub.mkv-zen-bud">Archive Nonprofit</a><br>
 - Watch the Full Movie of Dial M on <a href="https://archive.org/details/dial.-m.-for.-murder.-1954.720p.-br-rip.x-264.-yify">Archive Nonprofit</a><br>
 

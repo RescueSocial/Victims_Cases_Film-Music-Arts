@@ -18,7 +18,7 @@ Status	State	Year	Moving Party	Responding Party	Moving Actions	Responding Action
 
 ## <i>Foundational Examples - As Many Cases as Possible with Categories</i>
 <b>*Needing <i>Better Quality, Access to Services, and Better Lives</i> in the Arts, beyond 165 Cases Listed as Foundations,<br></b>
-<i><b>* Cases shown of people resisting exploitation in the <a href="https://youtu.be/YW1yH-bTWi8">film</a><br></b>
+<i><b> - * Cases shown of people resisting exploitation in the <a href="https://youtu.be/YW1yH-bTWi8">film</a><br></b>
 <b>Example of "Confidential" Magazine Documentary with Fixer Fred Otash:</b><br>
 [![Confidential Documentary](https://img.youtube.com/vi/YW1yH-bTWi8/0.jpg)](https://youtu.be/YW1yH-bTWi8)<br>
 

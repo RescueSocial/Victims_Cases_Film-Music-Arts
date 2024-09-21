@@ -54,13 +54,16 @@ Jeff (James Stewart) starts to (witness elements) with eye-witnessing, in compar
 Dial M Scene - Discovery of Coercion, Bribery, Object Tampering, Finances Reviewed by Investigator<br>
 <a href="https://www.youtube.com/watch?v=tUiVEKK8rWM">
 <img src="https://img.youtube.com/vi/tUiVEKK8rWM/0.jpg" width=40% height=40%></a><br>
-- Watch To Catch a Thief (1955) Grace Kelly & Cary Grant Walking Scene (Purchase Full Movie)<br>
+- Third Movie is To Catch a Thief (1955) Grace Kelly & Cary Grant Walking Scene, Discussing Finances (Purchase Full Movie)<br>
 <a href="https://www.youtube.com/watch?v=HMeQ99Pyd5w">
 <img src="https://img.youtube.com/vi/HMeQ99Pyd5w/0.jpg" width=40% height=40%></a><br><i><br>
 - Watch the Full Movie of Rear Window on <a href="https://archive.org/details/rear.-window.-1954.by-hitchcock.-720p.x-264.-aac.-multisub.mkv-zen-bud">Archive Nonprofit</a><br>
-- Watch Full Movie of Dial M on <a href="https://archive.org/details/dial.-m.-for.-murder.-1954.720p.-br-rip.x-264.-yify">Archive Nonprofit</a><br>
+- Watch the Full Movie of Dial M on <a href="https://archive.org/details/dial.-m.-for.-murder.-1954.720p.-br-rip.x-264.-yify">Archive Nonprofit</a><br>
 
 ## Improvements to Cases in the Arts and Fair Competition
 For Example, What is New York's Molineux Rule regarding Witnesses? Comparing to Federal Rule of Evidence 413 - <i><a href="https://lawreview.syr.edu/the-molineux-rule-how-this-exception-to-the-rules-of-evidence-could-impact-the-harvey-weinstein-trial/">Contemporary Preanalysis of Molineux Rule Regarding Arts Cases</a></i>
+
+<b>Consumer Financial Protection Bureau</b><br>
+https://www.consumerfinance.gov
 
 

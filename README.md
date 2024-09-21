@@ -21,12 +21,11 @@ Status	State	Year	Moving Party	Responding Party	Moving Actions	Responding Action
 <br></b>Because of lacking laws in California, in comparison to the Coercion laws in New York, <b>countless</b> people have been harmed related to the Arts. In one case alone, 500 people had to sue in the 2000s.<br>
 <b>Starting Example:</b> Joe DiMaggio <i><b>used</b></i> a private eye to surveil and <i><b>strong-arm</b></i> Marilyn Monroe as divorce granted <b>(Overlapping Legal Claim)</b>… LAPD investigated a <b>foiled</b> burglary... <b>Sold</b> the “wrong-door raid” story to Confidential magazine, where it appeared in the September 1955 issue… and, without suspects [witnesses and evidence not in the story], the <b>case</b> faded.<br>
 <i>"<b>California</b> state senator Fred Kraft… cited the incident as an example of “strong-arm” <b>tactics</b> by private eyes in the service of the magazine [and others]."</i> By 1978 to <i>Today</i>...
-<center><img src="https://github.com/RescueSocialTech/Victims_Cases_Film-Music-Arts/blob/main/v- Jane Russell and Marilyn Monroe Confront Investigator in Movie.png" width="150" height="100"></center>	
 
 <b>This is highly useful for people who need to see Conflicts of Interests as well as to Encourage Assistance from anywhere to study this more in a Fair and Just way that provides Guidance.</b>
 <br>*<i>The Cases</i> are organized for Prevention Importance and years.
 <br>
-<center><img src="https://github.com/RescueSocialTech/Victims_Cases_Film-Music-Arts/blob/main/z-film-arts-banner.jpg" width="400" height="100"></center>	
+<center><img src="https://github.com/RescueSocialTech/Victims_Cases_Film-Music-Arts/blob/main/z-film-arts-banner.jpg" width="400" height="100"><img src="https://github.com/RescueSocialTech/Victims_Cases_Film-Music-Arts/blob/main/v- Jane Russell and Marilyn Monroe Confront Investigator in Movie.png" width="150" height="100"></center>	
 <i><b>*Legislation Improvements are needed, and having research of the common problems of cases over Decades that prevent people in the Visual & Performing Arts from having a just legal system either outside or inside of court, related to a mixing of tactics that are not helpful, exploitative to disastrous.
 
 <br>This is to move this sector to better assistance away from sporadic updates based on the issues of the time.</i></b>

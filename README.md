@@ -65,10 +65,9 @@ argument, logic-related impediments and fallacies, elements in respect to cogent
 elements to interpersonal communication and issues via readings and film viewings.<br>
 - Logic and Contemporary Rhetoric: The Use of Reason in Everyday Life
 (2011 version has cameras on the cover)<br><a href="https://archive.org/details/logiccontemporar0000kaha_b2b5/mode/2up">Full Free Book on Archive Org</a><br>
-<br>
-
 - <b>Comedic Metaphor - Some Like It Hot (1959) Trailer | MGM Studios - showing musician witnesses escaping to another state - </b> https://www.youtube.com/watch?v=97TYs2YXbJw<br>
 
+<br>
 <center><img src="https://github.com/RescueSocialTech/Victims_Cases_Film-Music-Arts/blob/main/z- skyline new york city.jpg"></center>	
 
 ## Cases Related to the Arts:

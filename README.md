@@ -16,8 +16,8 @@ Status	State	Year	Moving Party	Responding Party	Moving Actions	Responding Action
 - Investigated -	California -	1954 -	<i>Joe DiMaggio	Marilyn Monroe</i> -	Surveilled, Break-In, Strong Arming	- 	Barney Rudisky	-		Film, Sports, Fixers					<br>	https://www.vanityfair.com/hollywood/2003/04/robert-harrison-confidential-magazine		
 </b>
 
-<b>Example of "Confidential" Magazine Documentary with Fixer Fred Otash:</b>
 <br><i>* Cases shown of people resisting exploitation in the <a href="https://youtu.be/YW1yH-bTWi8">film</a><br>
+<b>Example of "Confidential" Magazine Documentary with Fixer Fred Otash:</b><br>
 [![Confidential Documentary](https://img.youtube.com/vi/YW1yH-bTWi8/0.jpg)](https://youtu.be/YW1yH-bTWi8)
 
 ## <i>Foundational Examples - As Many Cases as Possible with Categories</i>
@@ -28,7 +28,7 @@ Status	State	Year	Moving Party	Responding Party	Moving Actions	Responding Action
 <b>This is highly useful for people who need to see Conflicts of Interests as well as to Encourage Assistance from anywhere to study this more in a Fair and Just way that provides Guidance.</b>
 <br>*<i>The Cases</i> are organized for Prevention Importance and years.
 <br>
-<center><img src="https://github.com/RescueSocialTech/Victims_Cases_Film-Music-Arts/blob/main/z-film-arts-banner.jpg" width="600" height="100"></center>	
+<center><img src="https://github.com/RescueSocialTech/Victims_Cases_Film-Music-Arts/blob/main/z-film-arts-banner.jpg" width="600" height="100"></center>	<br>
 <i><b>*Legislation Improvements are needed, and having research of the common problems of cases over Decades that prevent people in the Visual & Performing Arts from having a just legal system either outside or inside of court, related to a mixing of tactics that are not helpful, exploitative to disastrous.
 
 <br>This is to move this sector to better assistance away from sporadic updates based on the issues of the time.</i></b>

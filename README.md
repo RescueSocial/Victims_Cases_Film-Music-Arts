@@ -19,7 +19,7 @@ Status	State	Year	Moving Party	Responding Party	Moving Actions	Responding Action
 ## <i>Foundational Examples - As Many Cases as Possible with Categories</i>
 <b>Needing Better Quality, Access to Services, and Better Lives in the Arts, beyond 165 Cases Listed as Foundations,<br></b>
 <b>For Example:</b> In California, Joe DiMaggio <i><b>used</b></i> a private eye to surveil and <i><b>strong-arm</b></i> Marilyn Monroe as divorce granted… LAPD investigated a <b>foiled</b> burglary... <b>Sold</b> the “wrong-door raid” story to Confidential magazine, where it appeared in the September 1955 issue… and, without suspects [witnesses and evidence not in the story], the <b>case</b> faded.<br>
-"<b>California</b> state senator Fred Kraft… cited the incident as an example of “strong-arm” tactics by private eyes in the service of the magazine [and others]." By 1978...
+"<b> - California</b> state senator Fred Kraft… cited the incident as an example of “strong-arm” tactics by private eyes in the service of the magazine [and others]." By 1978...
 
 <b>This is highly useful for people who need to see Conflicts of Interests as well as to Encourage Assistance from anywhere to study this more in a Fair and Just way that provides Guidance.</b>
 <br>*<i>The Cases</i> are organized for Prevention Importance and years.
@@ -28,7 +28,7 @@ Status	State	Year	Moving Party	Responding Party	Moving Actions	Responding Action
 <i><b>*Legislation Improvements are needed, and having research of the common problems of cases over Decades that prevent people in the Visual & Performing Arts from having a just legal system either outside or inside of court, related to a mixing of tactics that are not helpful, exploitative to disastrous.
 
 <br>This is to move this sector to better assistance away from sporadic updates based on the issues of the time.</i></b>
-- <i>"The Price of LA" pilot TV show for Buzz is an example speaking with a <b>Witness</b> while at a nightclub:</i>
+- <i>"The Price of LA" pilot TV show for Buzz is an example of speaking with a <b>Witness</b> while at a nightclub:</i>
 <br>[Watch the video](https://vimeo.com/311363928)
 
 Some interesting points when observing enablement, which can be profitable for enablers, <b>is that Witness Dennis Davern and 700 people petitioned to re-open the investigation</b> about Natalie Wood: https://www.cbsnews.com/news/natalie-wood-death-in-dark-water

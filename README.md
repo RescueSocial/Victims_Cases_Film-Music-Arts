@@ -15,7 +15,7 @@ Status	State	Year	Moving Party	Responding Party	Moving Actions	Responding Action
 <br>
 - Investigated -	California -	1954 -	<i>Joe DiMaggio	Marilyn Monroe</i> -	Surveilled, Break-In, Strong Arming	- 	Barney Rudisky	-		Film, Sports, Fixers					<br>	https://www.vanityfair.com/hollywood/2003/04/robert-harrison-confidential-magazine		
 </b>
-<i>Optimistic Skyline for Cases Related to Film, Music, Arts<br></i>
+<i>Optimistic Skyline for <b>Cases Related to Film, Music, Arts</b><br></i>
 <center><img src="https://github.com/RescueSocialTech/Victims_Cases_Film-Music-Arts/blob/main/z- skyline new york city.jpg"></center>	
 
 ## <i>Foundational Examples - As Many Cases as Possible with Categories</i>
@@ -42,7 +42,7 @@ It's important for correct and accessible records in these investigations.
 - 41 Affidavits were collected for a <b>dialogue</b> coach perpetrator at Nickelodeon that harmed actors. <b>Transcriptions and Records</b> were obtained - https://stylecaster.com/lists/brian-peck-court-documents 
 - <i>2024: That Surprise Witness LLC on <b>Fixer/Investigator</b> that Witness Lil Rod cited: [Watch the video](https://www.youtube.com/watch?v=qr3zYt5Ae-s)</i>
 
-<i>* Cases shown of people Resisting Exploitation in the <a href="https://youtu.be/YW1yH-bTWi8">film</a><br>
+<i><b>* Cases shown of people Resisting Exploitation in the <a href="https://youtu.be/YW1yH-bTWi8">film</a></a><br>
 <b>Example of "Confidential" Magazine Documentary with Fixer Fred Otash:</b>
 <br>
 [![Confidential Documentary](https://img.youtube.com/vi/YW1yH-bTWi8/0.jpg)](https://youtu.be/YW1yH-bTWi8)<br>

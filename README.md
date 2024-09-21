@@ -69,10 +69,10 @@ elements to interpersonal communication and issues via readings and film viewing
 - Logic and Contemporary Rhetoric: The Use of Reason in Everyday Life</i>
 (2011 version has cameras on the cover)<br><a href="https://archive.org/details/logiccontemporar0000kaha_b2b5/mode/2up">Full Free Book on Archive Org</a><br>
   
-- Under <a href="https://github.com/RescueSocial/Victims_Cases_Film-Music-Arts/tree/main/Cases%20Documentation-Filings">Documentations-Cases</a> and <a href="https://github.com/RescueSocial/Victims_Cases_Film-Music-Arts/tree/main/Perceptions%20Guides%20to%20Fixers">Perception Guides</a> to Fixers, see educational film sequences and interviews:
-<br><b><i></b>Dial M (1954) - Your Word Against Mine Scene (2/10) | Movieclips<br></i>
+- Under <a href="https://github.com/RescueSocial/Victims_Cases_Film-Music-Arts/tree/main/Cases%20Documentation-Filings">Documentations-Cases</a> and <a href="https://github.com/RescueSocial/Victims_Cases_Film-Music-Arts/tree/main/Perceptions%20Guides%20to%20Fixers">Perception Guides to Fixers</a>, see educational film sequences and interviews:
+<br><b><i></b><a href="https://www.youtube.com/watch?v=Igs1WM2pA54">Dial M</a> (1954) - Your Word Against Mine Scene (2/10) | Movieclips<br></i>
 <a href="https://www.youtube.com/watch?v=Igs1WM2pA54">
-<img src="https://img.youtube.com/vi/Igs1WM2pA54/0.jpg" width=40% height=40%>
+<img src="https://img.youtube.com/vi/Igs1WM2pA54/0.jpg" width=45% height=45%>
 
 - <b>Comedic Metaphor - Some Like It Hot (1959) Trailer | MGM Studios - showing musician witnesses escaping to another state - </b> https://www.youtube.com/watch?v=97TYs2YXbJw
 

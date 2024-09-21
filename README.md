@@ -68,6 +68,7 @@ elements to interpersonal communication and issues via readings and film viewing
 - <b>Comedic Metaphor - Some Like It Hot (1959) Trailer | MGM Studios - showing musician witnesses escaping to another state - </b> https://www.youtube.com/watch?v=97TYs2YXbJw<br>
 
 <br>
+<i></i>Skyline for Cases Related to Film, Music, Arts<br></i>
 <center><img src="https://github.com/RescueSocialTech/Victims_Cases_Film-Music-Arts/blob/main/z- skyline new york city.jpg"></center>	
 
 ## Cases Related to the Arts:

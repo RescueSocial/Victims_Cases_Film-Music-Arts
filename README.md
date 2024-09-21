@@ -76,6 +76,7 @@ elements to interpersonal communication and issues via readings and film viewing
 
 - <b>Comedic Metaphor - Some Like It Hot (1959) Trailer | MGM Studios - showing musician witnesses escaping to another state - </b> https://www.youtube.com/watch?v=97TYs2YXbJw
 
+Obtaining Better Quality:<br>
 <center><img src="https://github.com/RescueSocialTech/Victims_Cases_Film-Music-Arts/blob/main/v- Jane Russell and Marilyn Monroe Confront Investigator in Movie.png" width=65% height=65%></center>	
 
 ## Cases Related to the Arts:

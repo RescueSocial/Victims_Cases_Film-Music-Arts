@@ -15,7 +15,7 @@ Status	State	Year	Moving Party	Responding Party	Moving Actions	Responding Action
 <br>
 - Investigated -	California -	1954 -	<i>Joe DiMaggio	Marilyn Monroe</i> -	Surveilled, Break-In, Strong Arming	- 	Barney Rudisky	-		Film, Sports, Fixers					<br>	https://www.vanityfair.com/hollywood/2003/04/robert-harrison-confidential-magazine		
 </b>
-<i></i>Optimistic Skyline for Cases Related to Film, Music, Arts<br></i>
+<i>Optimistic Skyline for Cases Related to Film, Music, Arts<br></i>
 <center><img src="https://github.com/RescueSocialTech/Victims_Cases_Film-Music-Arts/blob/main/z- skyline new york city.jpg"></center>	
 
 ## <i>Foundational Examples - As Many Cases as Possible with Categories</i>

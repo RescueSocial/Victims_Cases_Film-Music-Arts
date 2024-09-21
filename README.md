@@ -53,7 +53,7 @@ Comparing Legislation Improvements for U.S. Laws, for example to <a href="https:
 <br>The Coercion Law Relates to the Arts with, for example, "or another actor will" and "or withhold testimony or information with respect to another’s legal claim or defense"
 
 ## <i>Critical Thinking and Contemporary Rhetoric Comparisons</i>
-<i><b>Film Use Is Mentioned for Vantage Points, although "High Noon" from Golden Hollywood is not mentioned, for better Logic and Contemporary Rhetoric:</b>
+<b>Film Use Is Mentioned for Vantage Points, although "High Noon" from Golden Hollywood is not mentioned, for better Logic and Contemporary Rhetoric:</b>
 - </b>Additional emphasis will be via the use of films that illustrate the material. Critical response for improvements based on case readings and films
 <b>
 Compare seeing the Cases Components with Modern Re-Takes

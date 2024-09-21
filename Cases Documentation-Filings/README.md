@@ -63,7 +63,8 @@ Dial M Scene - Discovery of Coercion, Bribery, Object Tampering, Then Finances R
 
 ## Improvements to Cases in the Arts and Fair Competition
 For Example, What is New York's Molineux Rule regarding Witnesses? Comparing to Federal Rule of Evidence 413 -
-<br><i><a href="https://lawreview.syr.edu/the-molineux-rule-how-this-exception-to-the-rules-of-evidence-could-impact-the-harvey-weinstein-trial/">Contemporary Preanalysis of Molineux Rule Regarding Arts Cases</a></i><br>
+<br><i><a href="https://lawreview.syr.edu/the-molineux-rule-how-this-exception-to-the-rules-of-evidence-could-impact-the-harvey-weinstein-trial/">Contemporary Preanalysis of Molineux Rule Regarding Arts Cases</a></i>
+
 <b>Accurate Documentation, including Testimony, without exclusion, is very important for Cases, Including in the Arts.</b>
 
 ## Please See the Entire Repository for Foundational Understanding

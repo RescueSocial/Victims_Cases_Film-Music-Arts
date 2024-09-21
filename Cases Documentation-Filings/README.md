@@ -53,7 +53,7 @@ Jeff (James Stewart) starts to Witness Elements with Eye-witnessing, Compare to 
 (2) Second Movie is To Catch a Thief (1955) Grace Kelly & Cary Grant Walking Scene
 <br>Discussing Finances (Have to Purchase Full Movie)<br>
 <a href="https://www.youtube.com/watch?v=HMeQ99Pyd5w">
-<img src="https://img.youtube.com/vi/HMeQ99Pyd5w/0.jpg" width=40% height=40%></a><br><i><br>
+<img src="https://img.youtube.com/vi/HMeQ99Pyd5w/0.jpg" width=40% height=40%></a><br><i>
 (3) Dial M (1954) - Scene Revealing Alleged "Fantastic Story" (9/10) | Movieclips<br>
 Dial M Scene - Discovery of Coercion, Bribery, Object Tampering, Then Finances Reviewed by Investigator<br>
 <a href="https://www.youtube.com/watch?v=tUiVEKK8rWM">

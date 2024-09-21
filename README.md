@@ -71,13 +71,13 @@ elements to interpersonal communication and issues via readings and film viewing
   
 - Under <a href="https://github.com/RescueSocial/Victims_Cases_Film-Music-Arts/tree/main/Cases%20Documentation-Filings">Documentations-Cases</a> and <a href="https://github.com/RescueSocial/Victims_Cases_Film-Music-Arts/tree/main/Perceptions%20Guides%20to%20Fixers">Perception Guides</a> to Fixers, see educational film sequences and interviews:
 <br><b><i></b>Dial M (1954) - Your Word Against Mine Scene (2/10) | Movieclips<br></i>
-<a href="[https://www.youtube.com/watch?v=Igs1WM2pA54">
+<a href="https://www.youtube.com/watch?v=Igs1WM2pA54">
 <img src="https://img.youtube.com/vi/Igs1WM2pA54/0.jpg" width=40% height=40%>
 
 - <b>Comedic Metaphor - Some Like It Hot (1959) Trailer | MGM Studios - showing musician witnesses escaping to another state - </b> https://www.youtube.com/watch?v=97TYs2YXbJw
 
 Obtaining Better Quality:<br>
-<center><img src="https://github.com/RescueSocialTech/Victims_Cases_Film-Music-Arts/blob/main/v- Jane Russell and Marilyn Monroe Confront Investigator in Movie.png" width=65% height=65%></center>	
+<center><a href="https://youtu.be/60CM2-mFJWQ?si=ktvSoZyAR0vlX9UX"><img src="https://github.com/RescueSocialTech/Victims_Cases_Film-Music-Arts/blob/main/v- Jane Russell and Marilyn Monroe Confront Investigator in Movie.png" width=65% height=65%></a></center>	
 
 ## Cases Related to the Arts:
 <b><i>Now Optimistic for others to Build - We will be improving this with cases analysis, as well as knowledge in VISUAL AND PERFORMING ARTS or "Hollywood" Cases, which will increase the quality improvements accessible and to save lives!</i></b>

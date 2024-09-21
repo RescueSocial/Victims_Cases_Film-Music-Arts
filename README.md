@@ -49,8 +49,8 @@ It's important for correct and accessible records in these investigations.
 </b>Note: Moving Parties and Responding Parties does not necessarily declare absoluteness regarding innocence or allegations. People are advised to protect themselves legally and at this time, due to lacking research available, there may be patterns on moving/responding. These documents are improving.</i><b>
 
 ## <b>Improve Legislation and Comparisons </i>
-<i>Comparing Legislation Improvements for U.S. Laws, for example to <a href="https://newyork.public.law/laws/n.y._penal_law_section_135.60">New York</a></b>
-<br>The Coercion Law Relates to the Arts with, for example, "or another actor will" and "or withhold testimony or information with respect to another’s legal claim or defense"</i>
+Comparing Legislation Improvements for U.S. Laws, for example to <a href="https://newyork.public.law/laws/n.y._penal_law_section_135.60">New York</a></b>
+<br>The Coercion Law Relates to the Arts with, for example, "or another actor will" and "or withhold testimony or information with respect to another’s legal claim or defense"
 
 ## <i>Critical Thinking and Contemporary Rhetoric Comparisons</i>
 <i><b>Film Use Is Mentioned for Vantage Points, although "High Noon" from Golden Hollywood is not mentioned, for better Logic and Contemporary Rhetoric:</b>

@@ -2,7 +2,7 @@
 <b></i>This is to move this sector to better assistance, away from sporadic updates based on the issues of the time.</i></b><br>
 <br><i><b>*Legislation Improvements are needed, and having research of the common problems of cases over Decades that prevent people in the Visual & Performing Arts from having a just legal system either outside or inside of court, related to a mixing of tactics that are not helpful, exploitative to disastrous.
 
-<b>Example of "Confidential" Magazine Documentary with Fixer Fred Otash:</b>
+<b>Example of "Confidential" Magazine Documentary with Fixer Fred Otash:</b> 
 <br>
 [![Confidential Documentary](https://img.youtube.com/vi/YW1yH-bTWi8/0.jpg)](https://youtu.be/YW1yH-bTWi8)
 

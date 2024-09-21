@@ -18,22 +18,16 @@ Status	State	Year	Moving Party	Responding Party	Moving Actions	Responding Action
 
 ## <i>Foundational Examples - As Many Cases as Possible with Categories</i>
 <b>*Needing <i>Better Quality, Access to Services, and Better Lives</i> in the Arts, beyond 165 Cases Listed as Foundations,<br></b>
-<i><b>* Cases shown of people Resisting Exploitation in the <a href="https://youtu.be/YW1yH-bTWi8">film</a><br></b>
-<b>Example of "Confidential" Magazine Documentary with <i>Fixer</i> Fred Otash :</b><br></i>
-[![Confidential Documentary](https://img.youtube.com/vi/YW1yH-bTWi8/0.jpg)](https://youtu.be/YW1yH-bTWi8)<br>
-<b><i>Starting Example, for understanding:</i></b><br>
-Joe DiMaggio <i><b>used</b></i> a private eye to surveil and <i><b>strong-arm</b></i> Marilyn Monroe as divorce granted <b>(Overlapping Legal Claim)</b>… LAPD investigated a <b>foiled</b> burglary... <b>Sold</b> the “wrong-door raid” story to Confidential magazine, where it appeared in the September 1955 issue… and, without suspects [witnesses and evidence not in the story], the <b>case</b> faded.<br>
-<i>"<b>California</b> state senator Fred Kraft… cited the incident as an example of “strong-arm” <b>tactics</b> by private eyes in the service of the magazine <b>[and others]</b>."</i> By 1978 to <i>Today</i>...
+<b>Starting Example:</b> Joe DiMaggio <i><b>used</b></i> a private eye to surveil and <i><b>strong-arm</b></i> Marilyn Monroe as divorce granted <b>(Overlapping Legal Claim)</b>… LAPD investigated a <b>foiled</b> burglary... <b>Sold</b> the “wrong-door raid” story to Confidential magazine, where it appeared in the September 1955 issue… and, without suspects [witnesses and evidence not in the story], the <b>case</b> faded.<br>
+<i>"<b>California</b> state senator Fred Kraft… cited the incident as an example of “strong-arm” tactics by private eyes in the service of the magazine [and others]."</i> By 1978 to <i>Today</i>...
 
-## Conflicts of Interests and Encouraging Assistance
 <b>This is highly useful for people who need to see Conflicts of Interests as well as to Encourage Assistance from anywhere to study this more in a Fair and Just way that provides Guidance.</b>
 <br>*<i>The Cases</i> are organized for Prevention Importance and years.
 <br>
 <center><img src="https://github.com/RescueSocialTech/Victims_Cases_Film-Music-Arts/blob/main/z-film-arts-banner.jpg" width="600" height="100"></center>	
-<i><b>*Legislation Improvements are needed, and having research of the common problems of cases over Decades that prevent people in the Visual & Performing Arts from having a just legal system either outside or inside of court, related to a mixing of tactics that are not helpful, exploitative to disastrous.<br>
-This is to move this sector to better assistance away from sporadic updates based on the issues of the time.</i></b>
+<i><b>*Legislation Improvements are needed, and having research of the common problems of cases over Decades that prevent people in the Visual & Performing Arts from having a just legal system either outside or inside of court, related to a mixing of tactics that are not helpful, exploitative to disastrous.
 
-## Modern Examples of Cases
+<br>This is to move this sector to better assistance away from sporadic updates based on the issues of the time.</i></b>
 - <i>"The Price of LA" pilot TV show for Buzz is an example of speaking with a <b>Witness</b> while at a nightclub:</i>
 <br>[Watch the video](https://vimeo.com/311363928)
 
@@ -45,7 +39,11 @@ It's important for correct and accessible records in these investigations.
 - 41 Affidavits were collected for a <b>dialogue</b> coach perpetrator at Nickelodeon that harmed actors. <b>Transcriptions and Records</b> were obtained - https://stylecaster.com/lists/brian-peck-court-documents 
 - <i>2024: That Surprise Witness LLC on <b>Fixer/Investigator</b> that Witness Lil Rod cited: [Watch the video](https://www.youtube.com/watch?v=qr3zYt5Ae-s)</i>
 
-<i>Note: Moving Parties and Responding Parties does not necessarily declare absoluteness regarding innocence or allegations. People are advised to protect themselves legally and at this time, due to lacking research available, there may be patterns on moving/responding. These documents are improving.</i>
+<b>Example of "Confidential" Magazine Documentary with Fixer Fred Otash:</b>
+<br>
+[![Confidential Documentary](https://img.youtube.com/vi/YW1yH-bTWi8/0.jpg)](https://youtu.be/YW1yH-bTWi8)
+<br><i>* Cases shown of people resisting exploitation in the <a href="https://youtu.be/YW1yH-bTWi8">film</a><br>
+NOTE: Moving Parties and Responding Parties does not necessarily declare absoluteness regarding innocence or allegations. People are advised to protect themselves legally and at this time, due to lacking research available, there may be patterns on moving/responding. These documents are improving.</i>
 
 ## <b>Improve Legislation and Comparisons </i>
 <i>Comparing Legislation Improvements for U.S. Laws, for example to <a href="https://newyork.public.law/laws/n.y._penal_law_section_135.60">New York</a></b>

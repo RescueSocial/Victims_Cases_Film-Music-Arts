@@ -59,7 +59,7 @@ Comparing Legislation Improvements for U.S. Laws, for example to <a href="https:
 Compare seeing the Cases Components with Modern Re-Takes
 <br><a href="https://www.youtube.com/watch?v=DbFi2SnRPT4">Modern</a> Trailer of Rear Window (1954) - James Stewart, Grace Kelly<br>
 <a href="https://www.youtube.com/watch?v=DbFi2SnRPT4">
-<img src="https://img.youtube.com/vi/DbFi2SnRPT4/0.jpg" width=40% height=40%>
+<img src="https://img.youtube.com/vi/DbFi2SnRPT4/0.jpg" width=45% height=45%>
 </a>
 <br>Compare to the Original Trailer's Perspective Vantage Point (Cameras, Looking As a Witness from the Rear Window, Alfred Hitchcock) from Universal Pictures - <i>https://youtu.be/HejJ-yLmf3Y?si=V4Iji07lhB2faZeT</i><br>
 - Watch the Full Movie of Rear Window on <a href="https://archive.org/details/rear.-window.-1954.by-hitchcock.-720p.x-264.-aac.-multisub.mkv-zen-bud">Archive Nonprofit</a><br>

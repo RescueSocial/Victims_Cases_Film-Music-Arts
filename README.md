@@ -17,7 +17,7 @@ Status	State	Year	Moving Party	Responding Party	Moving Actions	Responding Action
 </b>
 
 ## <i>Foundational Examples - As Many Cases as Possible with Categories</i>
-<b>Needing Better Quality, Access to Services, and Better Lives in the Arts, beyond 165 Cases Listed as Foundations to Modern Cases -<br></b>
+<b>Needing Better Quality, Access to Services, and Better Lives in the Arts, beyond 165 Cases Listed as Foundations to Now,<br></b>
 <b>Example:</b> Joe DiMaggio <i><b>used</b></i> a private eye to surveil and <i><b>strong-arm</b></i> Marilyn Monroe as divorce granted… LAPD investigated a <b>foiled</b> burglary... <b>Sold</b> the “wrong-door raid” story to Confidential magazine, where it appeared in the September 1955 issue… and, without suspects [witnesses and evidence not in the story], the <b>case</b> faded.<br>
 "California state senator Fred Kraft… cited the incident as an example of “strong-arm” tactics by private eyes in the service of the magazine [and others]." By 1978...
 

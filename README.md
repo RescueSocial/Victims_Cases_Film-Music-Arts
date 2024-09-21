@@ -71,6 +71,10 @@ elements to interpersonal communication and issues via readings and film viewing
 - <b>Comedic Metaphor - Some Like It Hot (1959) Trailer | MGM Studios - showing musician witnesses escaping to another state - </b> https://www.youtube.com/watch?v=97TYs2YXbJw<br>
 
 <br>
+Under Perspective Guides to Fixers, see an educational movie sequence and interviews:<br>
+<br><b><i></i></b>Dial M (1954) - Your Word Against Mine Scene (2/10) | Movieclips<br></i>
+<a href="[https://www.youtube.com/watch?v=Igs1WM2pA54">
+<img src="https://img.youtube.com/vi/Igs1WM2pA54/0.jpg" width=40% height=40%>
 
 ## Cases Related to the Arts:
 <b><i>Now Optimistic for others to Build - We will be improving this with cases analysis, as well as knowledge in VISUAL AND PERFORMING ARTS or "Hollywood" Cases, which will increase the quality improvements accessible and to save lives!</i></b>

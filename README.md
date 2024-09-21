@@ -18,7 +18,7 @@ Status	State	Year	Moving Party	Responding Party	Moving Actions	Responding Action
 
 ## <i>Foundational Examples - As Many Cases as Possible with Categories</i>
 <b>*Needing <i>Better Quality, Access to Services, and Better Lives</i> in the Arts, 165 Cases are Listed as Foundations to the Present.
-<br></b>Because of lacking laws in California, in comparison to the Coercion laws in New York, countless people have been harmed related to the Arts. In one case alone, 500 people had to sue in the 2000s.<br>
+<br></b>Because of lacking laws in California, in comparison to the Coercion laws in New York, <b>countless</b> people have been harmed related to the Arts. In one case alone, 500 people had to sue in the 2000s.<br>
 <b>Example:</b> Joe DiMaggio <i><b>used</b></i> a private eye to surveil and <i><b>strong-arm</b></i> Marilyn Monroe as divorce granted <b>(Overlapping Legal Claim)</b>… LAPD investigated a <b>foiled</b> burglary... <b>Sold</b> the “wrong-door raid” story to Confidential magazine, where it appeared in the September 1955 issue… and, without suspects [witnesses and evidence not in the story], the <b>case</b> faded.<br>
 <i>"<b>California</b> state senator Fred Kraft… cited the incident as an example of “strong-arm” <b>tactics</b> by private eyes in the service of the magazine [and others]."</i> By 1978 to <i>Today</i>...
 

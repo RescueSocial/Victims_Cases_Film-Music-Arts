@@ -66,7 +66,7 @@ elements to interpersonal communication and issues via readings and film viewing
 - Logic and Contemporary Rhetoric: The Use of Reason in Everyday Life
 (2011 version has cameras on the cover)<br><a href="https://archive.org/details/logiccontemporar0000kaha_b2b5/mode/2up">Full Free Book on Archive Org</a><br>
 
-<b>- Comedic Metaphor - Some Like It Hot (1959) Trailer | MGM Studios - showing musician witnesses escaping to another state - </b> https://www.youtube.com/watch?v=97TYs2YXbJw<br>
+- <b>Comedic Metaphor - Some Like It Hot (1959) Trailer | MGM Studios - showing musician witnesses escaping to another state - </b> https://www.youtube.com/watch?v=97TYs2YXbJw<br>
 
 <center><img src="https://github.com/RescueSocialTech/Victims_Cases_Film-Music-Arts/blob/main/z- skyline new york city.jpg"></center>	
 

@@ -46,22 +46,23 @@ elements to interpersonal communication and issues via readings and film viewing
 
 ## Comparison of Educational Movies to Assist Importance of Better Cases
 <b>Three Alfred Hitchcock Movies on Critical Thinking About Witnessing and Documentation of Elements:</b><br>
-- </b>James Stewart (Witnesses) | 'Rear Window' (1954) | Hitchcock Presents<br>
+(1) </b>James Stewart (Witnesses) | 'Rear Window' (1954) | Hitchcock Presents<br>
 Jeff (James Stewart) starts to (witness elements) with eye-witnessing, in comparison to the telephoto lense.<br>
 <a href="https://www.youtube.com/watch?v=ES5A-8mXvOU">
 <img src="https://img.youtube.com/vi/ES5A-8mXvOU/0.jpg" width=40% height=40%></a><br>
-- Dial M (1954) - Scene Revealing Set Up by Alleged "Fantastic Story" (9/10) | Movieclips<br>
-Dial M Scene - Discovery of Coercion, Bribery, Object Tampering, Finances Reviewed by Investigator<br>
+(2) Dial M (1954) - Scene Revealing Set Up by Alleged "Fantastic Story" (9/10) | Movieclips<br>
+Dial M Scene - Discovery of Coercion, Bribery, Object Tampering, Then Finances Reviewed by Investigator<br>
 <a href="https://www.youtube.com/watch?v=tUiVEKK8rWM">
 <img src="https://img.youtube.com/vi/tUiVEKK8rWM/0.jpg" width=40% height=40%></a><br>
-- Third Movie is To Catch a Thief (1955) Grace Kelly & Cary Grant Walking Scene, Discussing Finances (Purchase Full Movie)<br>
+(3) Third Movie is To Catch a Thief (1955) Grace Kelly & Cary Grant Walking Scene, Discussing Finances (Purchase Full Movie)<br>
 <a href="https://www.youtube.com/watch?v=HMeQ99Pyd5w">
 <img src="https://img.youtube.com/vi/HMeQ99Pyd5w/0.jpg" width=40% height=40%></a><br><i><br>
 - Watch the Full Movie of Rear Window on <a href="https://archive.org/details/rear.-window.-1954.by-hitchcock.-720p.x-264.-aac.-multisub.mkv-zen-bud">Archive Nonprofit</a><br>
 - Watch the Full Movie of Dial M on <a href="https://archive.org/details/dial.-m.-for.-murder.-1954.720p.-br-rip.x-264.-yify">Archive Nonprofit</a><br>
 
 ## Improvements to Cases in the Arts and Fair Competition
-For Example, What is New York's Molineux Rule regarding Witnesses? Comparing to Federal Rule of Evidence 413 - <i><a href="https://lawreview.syr.edu/the-molineux-rule-how-this-exception-to-the-rules-of-evidence-could-impact-the-harvey-weinstein-trial/">Contemporary Preanalysis of Molineux Rule Regarding Arts Cases</a></i>
+For Example, What is New York's Molineux Rule regarding Witnesses? Comparing to Federal Rule of Evidence 413 -
+<br><i><a href="https://lawreview.syr.edu/the-molineux-rule-how-this-exception-to-the-rules-of-evidence-could-impact-the-harvey-weinstein-trial/">Contemporary Preanalysis of Molineux Rule Regarding Arts Cases</a></i>
 
 <b>Consumer Financial Protection Bureau</b><br>
 https://www.consumerfinance.gov

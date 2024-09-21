@@ -44,8 +44,8 @@ elements to interpersonal communication and issues via readings and film viewing
 - Logic and Contemporary Rhetoric: The Use of Reason in Everyday Life
 (2011 version has cameras on the cover)<br><a href="https://archive.org/details/logiccontemporar0000kaha_b2b5/mode/2up">Full Free Book on Archive Org</a>
 
-## Comparison of Educational Movies Assist Critical Thinking
-<b>Three Alfred Hitchcock Movies on Witnessing and Documentation of Elements:</b><br>
+## Comparison of Educational Movies to Assist Importance of Better Cases
+<b>Three Alfred Hitchcock Movies on Critical Thinking About Witnessing and Documentation of Elements:</b><br>
 - Watch the Full Movie of Rear Window on <a href="https://archive.org/details/rear.-window.-1954.by-hitchcock.-720p.x-264.-aac.-multisub.mkv-zen-bud">Archive Nonprofit</a><br>
 - Watch Full Movie of Dial M on <a href="https://archive.org/details/dial.-m.-for.-murder.-1954.720p.-br-rip.x-264.-yify">Archive Nonprofit</a><br>
 - </b>James Stewart (Witnesses) | 'Rear Window' (1954) | Hitchcock Presents<br>

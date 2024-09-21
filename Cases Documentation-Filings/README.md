@@ -49,13 +49,13 @@ elements to interpersonal communication and issues via readings and film viewing
 - Watch the Full Movie of Rear Window on <a href="https://archive.org/details/rear.-window.-1954.by-hitchcock.-720p.x-264.-aac.-multisub.mkv-zen-bud">Archive Nonprofit</a><br>
 - Watch Full Movie of Dial M on <a href="https://archive.org/details/dial.-m.-for.-murder.-1954.720p.-br-rip.x-264.-yify">Archive Nonprofit</a><br>
 - </b>James Stewart (Witnesses) | 'Rear Window' (1954) | Hitchcock Presents<br>
-Jeff (James Stewart) starts to (witness elements), as he gets even closer to his neighbour's apartment with his (eye-witnessing in comparison to the telephoto lense).<br>
+Jeff (James Stewart) starts to (witness elements) with his (eye-witnessing in comparison to the telephoto lense).<br>
 <a href="https://www.youtube.com/watch?v=ES5A-8mXvOU">
 <img src="https://img.youtube.com/vi/ES5A-8mXvOU/0.jpg" width=40% height=40%></a><br>
 - Dial M (1954) - Scene Revealing Set Up (9/10) | Movieclips<br>
 <a href="https://www.youtube.com/watch?v=tUiVEKK8rWM">
 <img src="https://img.youtube.com/vi/tUiVEKK8rWM/0.jpg" width=40% height=40%></a><br>
-Dial M Scene- Discovery of Coercion, Bribery, Object Tampering, then Finances Reviewed by Investigator<br>
+Dial M Scene - Discovery of Coercion, Bribery, Object Tampering, then Finances Reviewed by Investigator<br>
 - Watch To Catch a Thief (1955) Grace Kelly & Cary Grant Walking Scene (Purchase Full Movie)<br>
 <a href="https://www.youtube.com/watch?v=HMeQ99Pyd5w">
 <img src="https://img.youtube.com/vi/HMeQ99Pyd5w/0.jpg" width=40% height=40%></a><br><i>

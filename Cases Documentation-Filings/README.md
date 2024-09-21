@@ -47,11 +47,11 @@ elements to interpersonal communication and issues via readings and film viewing
 ## Comparison of Educational Movies to Assist Importance of Better Cases
 <b>Three Alfred Hitchcock Movies on Critical Thinking About Witnessing and Documentation of Elements:</b><br>
 - </b>James Stewart (Witnesses) | 'Rear Window' (1954) | Hitchcock Presents<br>
-Jeff (James Stewart) starts to (witness elements) with (eye-witnessing in comparison to the telephoto lense).<br>
+Jeff (James Stewart) starts to (witness elements) with eye-witnessing, in comparison to the telephoto lense.<br>
 <a href="https://www.youtube.com/watch?v=ES5A-8mXvOU">
 <img src="https://img.youtube.com/vi/ES5A-8mXvOU/0.jpg" width=40% height=40%></a><br>
 - Dial M (1954) - Scene Revealing Set Up by Alleged "Fantastic Story" (9/10) | Movieclips<br>
-Dial M Scene - Discovery of Coercion, Bribery, Object Tampering, then Finances Reviewed by Investigator<br>
+Dial M Scene - Discovery of Coercion, Bribery, Object Tampering, Finances Reviewed by Investigator<br>
 <a href="https://www.youtube.com/watch?v=tUiVEKK8rWM">
 <img src="https://img.youtube.com/vi/tUiVEKK8rWM/0.jpg" width=40% height=40%></a><br>
 - Watch To Catch a Thief (1955) Grace Kelly & Cary Grant Walking Scene (Purchase Full Movie)<br>

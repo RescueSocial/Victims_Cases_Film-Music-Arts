@@ -16,6 +16,10 @@ Status	State	Year	Moving Party	Responding Party	Moving Actions	Responding Action
 - Investigated -	California -	1954 -	<i>Joe DiMaggio	Marilyn Monroe</i> -	Surveilled, Break-In, Strong Arming	- 	Barney Rudisky	-		Film, Sports, Fixers					<br>	https://www.vanityfair.com/hollywood/2003/04/robert-harrison-confidential-magazine		
 </b>
 
+<b>Example of "Confidential" Magazine Documentary with Fixer Fred Otash:</b>
+<br><i>* Cases shown of people resisting exploitation in the <a href="https://youtu.be/YW1yH-bTWi8">film</a><br>
+[![Confidential Documentary](https://img.youtube.com/vi/YW1yH-bTWi8/0.jpg)](https://youtu.be/YW1yH-bTWi8)
+
 ## <i>Foundational Examples - As Many Cases as Possible with Categories</i>
 <b>*Needing <i>Better Quality, Access to Services, and Better Lives</i> in the Arts, beyond 165 Cases Listed as Foundations,<br></b>
 <b>Starting Example:</b> Joe DiMaggio <i><b>used</b></i> a private eye to surveil and <i><b>strong-arm</b></i> Marilyn Monroe as divorce granted <b>(Overlapping Legal Claim)</b>… LAPD investigated a <b>foiled</b> burglary... <b>Sold</b> the “wrong-door raid” story to Confidential magazine, where it appeared in the September 1955 issue… and, without suspects [witnesses and evidence not in the story], the <b>case</b> faded.<br>
@@ -39,11 +43,7 @@ It's important for correct and accessible records in these investigations.
 - 41 Affidavits were collected for a <b>dialogue</b> coach perpetrator at Nickelodeon that harmed actors. <b>Transcriptions and Records</b> were obtained - https://stylecaster.com/lists/brian-peck-court-documents 
 - <i>2024: That Surprise Witness LLC on <b>Fixer/Investigator</b> that Witness Lil Rod cited: [Watch the video](https://www.youtube.com/watch?v=qr3zYt5Ae-s)</i>
 
-<b>Example of "Confidential" Magazine Documentary with Fixer Fred Otash:</b>
-<br>
-[![Confidential Documentary](https://img.youtube.com/vi/YW1yH-bTWi8/0.jpg)](https://youtu.be/YW1yH-bTWi8)
-<br><i>* Cases shown of people resisting exploitation in the <a href="https://youtu.be/YW1yH-bTWi8">film</a><br>
-NOTE: Moving Parties and Responding Parties does not necessarily declare absoluteness regarding innocence or allegations. People are advised to protect themselves legally and at this time, due to lacking research available, there may be patterns on moving/responding. These documents are improving.</i>
+<i>NOTE: Moving Parties and Responding Parties does not necessarily declare absoluteness regarding innocence or allegations. People are advised to protect themselves legally and at this time, due to lacking research available, there may be patterns on moving/responding. These documents are improving.</i>
 
 ## <b>Improve Legislation and Comparisons </i>
 <i>Comparing Legislation Improvements for U.S. Laws, for example to <a href="https://newyork.public.law/laws/n.y._penal_law_section_135.60">New York</a></b>

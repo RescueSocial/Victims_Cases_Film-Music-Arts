@@ -68,6 +68,8 @@ argument, logic-related impediments and fallacies, elements in respect to cogent
 elements to interpersonal communication and issues via readings and film viewings.<br>
 - Logic and Contemporary Rhetoric: <b>The Use of Reason in Everyday Life</b></i>
 (2011 version has cameras on the cover)<br><a href="https://archive.org/details/logiccontemporar0000kaha_b2b5/mode/2up">Full Free Book on Archive Org</a><br>
+
+## Additional Guides and Comparisons
   
 - Under <a href="https://github.com/RescueSocial/Victims_Cases_Film-Music-Arts/tree/main/Cases%20Documentation-Filings">Documentations-Cases</a> and <a href="https://github.com/RescueSocial/Victims_Cases_Film-Music-Arts/tree/main/Perceptions%20Guides%20to%20Fixers">Perception Guides to Fixers</a>, see educational film sequences and interviews:
 <br><b><i></b><a href="https://www.youtube.com/watch?v=Igs1WM2pA54">Dial M</a> (1954) - Example Coercion: Your Word Against Mine Scene (2/10) | Movieclips, in Context<br></i>

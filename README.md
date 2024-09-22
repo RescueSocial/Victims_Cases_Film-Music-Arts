@@ -82,9 +82,8 @@ elements to interpersonal communication and issues via readings and film viewing
 Obtaining Better Quality Comedic Metaphor with Intercommunication:<br>
 <center><a href="https://youtu.be/60CM2-mFJWQ?si=ktvSoZyAR0vlX9UX"><img src="https://github.com/RescueSocialTech/Victims_Cases_Film-Music-Arts/blob/main/v- Jane Russell and Marilyn Monroe Confront Investigator in Movie.png" width=45% height=45%></a></center>	
 
-## Cases Related to the Arts:
-<b><i>Now Optimistic for others to Build -<br>
-We will be improving this with cases analysis, as well as knowledge in VISUAL AND PERFORMING ARTS or "Hollywood" Cases, which will increase the quality improvements accessible and to save lives!</i></b><br>
+## Cases Related to the Arts - Optimistic for others to Build
+<b><i>We will be improving this with cases analysis, as well as knowledge in VISUAL AND PERFORMING ARTS or "Hollywood" Cases, which will increase the quality improvements accessible and to save lives!</i></b><br>
 
 - <i>Please See the Entire Repository for Foundational Understanding, encouraging assistance, for Better Outcomes</i>
 - Consumer Financial Protection Bureau<br>

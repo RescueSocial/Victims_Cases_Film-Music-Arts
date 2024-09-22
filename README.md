@@ -9,7 +9,6 @@
 - Similar Cases<br>
  <i>(Golden Era Hollywood to PRESENT)</i> 
 
-<center><img src="https://fredericksymphony.org/wp-content/uploads/2019/08/FSOAug19-1.jpg" width=20% height=20%/></center>
 Example:<br>
 <b>
 Status	State	Year	Moving Party	Responding Party	Moving Actions	Responding Actions	Investigators Victim	Investigators Perpetrator	Lawyers Responding	Lawyers Moving	Arts Business Areas	Responding Arts Area	Moving Arts Area	Experts Victim	Experts Perpetrators	Videos	Links											
@@ -83,5 +82,7 @@ Obtaining Better Quality Comedic Metaphor:<br>
 
 ## Cases Related to the Arts:
 <b><i>Now Optimistic for others to Build - We will be improving this with cases analysis, as well as knowledge in VISUAL AND PERFORMING ARTS or "Hollywood" Cases, which will increase the quality improvements accessible and to save lives!</i></b>
+
+<center><img src="https://fredericksymphony.org/wp-content/uploads/2019/08/FSOAug19-1.jpg" width=20% height=20%/></center>
 
 - <i>Please See the Entire Repository for Foundational Understanding, for Better Outcomes</i>

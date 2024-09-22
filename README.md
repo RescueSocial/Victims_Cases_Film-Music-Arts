@@ -86,6 +86,7 @@ California's <a href="https://www.forthepeople.com/blog/california-updates-sexua
 <br>in Jane Russell and Marilyn Monroe <a href="https://youtu.be/60CM2-mFJWQ?si=ktvSoZyAR0vlX9UX">Movie</a></i>:<br>
 <center><a href="https://youtu.be/60CM2-mFJWQ?si=ktvSoZyAR0vlX9UX"><img src="https://github.com/RescueSocialTech/Victims_Cases_Film-Music-Arts/blob/main/v- Jane Russell and Marilyn Monroe Confront Investigator in Movie.png" width=45% height=45%></a></center>	
 
+<center><img src="https://images.unsplash.com/photo-1567284364258-30c429a24b81?crop=entropy&cs=tinysrgb&fit=max&fm=jpg&ixid=MnwxMjA3fDB8MXxzZWFyY2h8MXx8d2VsY29tZSUyMGFib2FyZHx8MHx8fHwxNjE5MzAxMTQ2&ixlib=rb-1.2.1&q=80&w=1080" width=40% height=40%/>
 
 ## Cases Related to the Arts - Optimistic for others to Build
 <b><i>We will be improving this with cases analysis, as well as knowledge in VISUAL AND PERFORMING ARTS or "Hollywood" Cases, which will increase the quality improvements accessible and to save lives!</i></b><br>
@@ -95,6 +96,6 @@ California's <a href="https://www.forthepeople.com/blog/california-updates-sexua
 - <b><i>Over <a href="https://github.com/RescueSocial/Cases_Film_Music_Arts_Hollywood">500 Cases in Film, Music, Arts</a> are growing and with Assistance from across the United States.</i></b>
 - <b>Consumer Financial Protection Bureau</b><br>
 https://www.consumerfinance.gov
-<center><img src="https://images.unsplash.com/photo-1567284364258-30c429a24b81?crop=entropy&cs=tinysrgb&fit=max&fm=jpg&ixid=MnwxMjA3fDB8MXxzZWFyY2h8MXx8d2VsY29tZSUyMGFib2FyZHx8MHx8fHwxNjE5MzAxMTQ2&ixlib=rb-1.2.1&q=80&w=1080" width=20% height=20%/>
+
 <img src="https://fredericksymphony.org/wp-content/uploads/2019/08/FSOAug19-1.jpg" width=20% height=20%/></center>
 

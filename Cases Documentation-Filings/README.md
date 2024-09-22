@@ -34,7 +34,7 @@ Joe DiMaggio <i><b>used</b></i> a private eye to surveil and <i><b>strong-arm</b
 <i>Film Use Is Mentioned for Vantage Points, although "High Noon" from Golden Hollywood is not mentioned, for better Logic and Contemporary Rhetoric:
 - </b>Additional emphasis will be via the use of films that illustrate the material. Critical response for improvements based on case readings and films
 <b>
-Compare seeing the Cases Components with Modern Re-Takes
+Compare seeing the Cases Components and as Witnesses with Modern Re-Takes
 <br><a href="https://www.youtube.com/watch?v=DbFi2SnRPT4">Modern</a> Trailer of Rear Window (1954) - James Stewart, Grace Kelly<br>
 <a href="https://www.youtube.com/watch?v=DbFi2SnRPT4">
 <img src="https://img.youtube.com/vi/DbFi2SnRPT4/0.jpg" width=40% height=40%>

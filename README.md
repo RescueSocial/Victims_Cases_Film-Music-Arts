@@ -74,13 +74,13 @@ elements to interpersonal communication and issues via readings and film viewing
 <a href="https://www.youtube.com/watch?v=Igs1WM2pA54">
 <img src="https://img.youtube.com/vi/Igs1WM2pA54/0.jpg" width=45% height=45%>
 
-- <b>Comedic Metaphor - Some Like It Hot (1959) Trailer | MGM Studios - showing musician witnesses escaping to another state - </b> https://www.youtube.com/watch?v=97TYs2YXbJw
+- <b>Comedic Metaphor - Some Like It Hot (1959) Trailer | MGM Studios - showing Musician Witnesses escaping to another state - </b> https://www.youtube.com/watch?v=97TYs2YXbJw
 
 Obtaining Better Quality Comedic Metaphor:<br>
 <center><a href="https://youtu.be/60CM2-mFJWQ?si=ktvSoZyAR0vlX9UX"><img src="https://github.com/RescueSocialTech/Victims_Cases_Film-Music-Arts/blob/main/v- Jane Russell and Marilyn Monroe Confront Investigator in Movie.png" width=65% height=65%></a></center>	
 
 
-<center><img src="https://fredericksymphony.org/wp-content/uploads/2019/08/FSOAug19-1.jpg" width=20% height=20%/></center>
+<center><img src="https://fredericksymphony.org/wp-content/uploads/2019/08/FSOAug19-1.jpg" width=30% height=30%/></center>
 
 ## Cases Related to the Arts:
 <b><i>Now Optimistic for others to Build - We will be improving this with cases analysis, as well as knowledge in VISUAL AND PERFORMING ARTS or "Hollywood" Cases, which will increase the quality improvements accessible and to save lives!</i></b>

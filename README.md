@@ -13,14 +13,14 @@ Example:<br>
 <b>
 Status	State	Year	Moving Party	Responding Party	Moving Actions	Responding Actions	Investigators Victim	Investigators Perpetrator	Lawyers Responding	Lawyers Moving	Arts Business Areas	Responding Arts Area	Moving Arts Area	Experts Victim	Experts Perpetrators	Videos	Links											
 <br>
-- Investigated -	California -	1954 -	<i>Joe DiMaggio	Marilyn Monroe</i> -	Surveilled, Break-In, Strong Arming	- 	Barney Rudisky	-		Film, Sports, Fixers					<br>	https://www.vanityfair.com/hollywood/2003/04/robert-harrison-confidential-magazine		
+- Investigated -	California -	1954 -	<i>Joe DiMaggio	Marilyn Monroe</i> -	Surveilled, Strong Arming, Break In	- 	Barney Rudisky	-		Film, Sports, Fixers					<br>	https://www.vanityfair.com/hollywood/2003/04/robert-harrison-confidential-magazine		
 </b>
 <i>Optimistic Skyline for <b>Cases Related to Film, Music, Arts</b><br></i>
 <center><img src="https://github.com/RescueSocialTech/Victims_Cases_Film-Music-Arts/blob/main/z- skyline new york city.jpg"></center>	
 
 ## <i>Foundational Examples - As Many Cases as Possible with Categories</i>
 <b>Needing <i>Better Quality, Access to Services, and Better Lives</i> in the Arts, 165 Cases are Listed as Foundations to the Present.
-<br>Because of lacking laws in California, in comparison to for instance, Coercion laws in New York, <b><a href="https://theaccidentalgangster.com/about-us/">countless</a></b> people have been harmed related to the Arts. <i>In one case alone, 500 people had to sue in the 2000s onward.</i><br>
+<br>Because of lacking laws in California, <i>in comparison to for instance,</i> Coercion laws in New York, <b><a href="https://theaccidentalgangster.com/about-us/">countless</a></b> people have been harmed related to the Arts. <i>In one case alone, 500 people had to sue in the 2000s onward.</i><br>
 - <b>Starting Example with Elements:</b></b> Joe DiMaggio <i><b>used</b></i> a private eye to surveil and <i><b>strong-arm</b></i> Marilyn Monroe as divorce granted <b>(Overlapping Legal Claim)</b>… LAPD investigated a <b>foiled</b> burglary (by fixers)... (fixers) <b>Sold</b> the “wrong-door raid” story to Confidential magazine, where it appeared in the September 1955 issue… and, without suspects [witnesses and evidence not in the story], the <b>case</b> faded.<br>
 <i>"<b>California</b> state senator Fred Kraft… cited the incident as an example of “strong-arm” <b>tactics</b> by private eyes in the service of the magazine [and others]."</i> By 1978 to <i>Today</i>...
 

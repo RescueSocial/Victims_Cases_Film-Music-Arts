@@ -82,7 +82,8 @@ California's <a href="https://www.forthepeople.com/blog/california-updates-sexua
 - <b>Comedic Metaphor - Some Like It Hot (1959) Trailer | MGM Studios - showing Musician Witnesses escaping to another state - </b> https://www.youtube.com/watch?v=97TYs2YXbJw
 <i><br>Joe and Jerry, Musician Witnesses, on the run in an MGM film, <a href="https://www.youtube.com/watch?v=KJJlcNayRQk">Scene of alleged Fixer implications (See Guide)</a>.</i>
 
-Obtaining Better Quality Comedic Metaphor with Intercommunication<i>, in Jane Russell and Marilyn Monroe <a href="https://youtu.be/60CM2-mFJWQ?si=ktvSoZyAR0vlX9UX">Movie</a></i>:<br>
+Obtaining Better Quality Comedic Metaphor with Intercommunication,<i>
+<br>in Jane Russell and Marilyn Monroe <a href="https://youtu.be/60CM2-mFJWQ?si=ktvSoZyAR0vlX9UX">Movie</a></i>:<br>
 <center><a href="https://youtu.be/60CM2-mFJWQ?si=ktvSoZyAR0vlX9UX"><img src="https://github.com/RescueSocialTech/Victims_Cases_Film-Music-Arts/blob/main/v- Jane Russell and Marilyn Monroe Confront Investigator in Movie.png" width=45% height=45%></a></center>	
 
 ## Cases Related to the Arts - Optimistic for others to Build

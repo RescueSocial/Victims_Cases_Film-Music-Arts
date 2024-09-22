@@ -85,8 +85,8 @@ Obtaining Better Quality Comedic Metaphor with Intercommunication:<br>
 ## Cases Related to the Arts - Optimistic for others to Build
 <b><i>We will be improving this with cases analysis, as well as knowledge in VISUAL AND PERFORMING ARTS or "Hollywood" Cases, which will increase the quality improvements accessible and to save lives!</i></b><br>
 
-- <i>Please See the Entire Repository for Foundational Understanding, encouraging assistance, for Better Outcomes</i>
-- Consumer Financial Protection Bureau<br>
+- <i>Please See the Entire Repository for Foundational Understanding, encouraging assistance and access, for Better Outcomes</i>
+- <b>Consumer Financial Protection Bureau</b><br>
 https://www.consumerfinance.gov
 
 <center><img src="https://fredericksymphony.org/wp-content/uploads/2019/08/FSOAug19-1.jpg" width=20% height=20%/></center>

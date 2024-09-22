@@ -93,7 +93,7 @@ California's <a href="https://www.forthepeople.com/blog/california-updates-sexua
 <i></i>Welcome Aboard</i><br>
 
 - <i>Please See the Entire Repository for Foundational Understanding, encouraging assistance and access, for Better Outcomes</i>
-- <b>Over <a href="https://github.com/RescueSocial/Cases_Film_Music_Arts_Hollywood">500 Cases in Film, Music, Arts</a> are in a growing repository and with Assistance from across the United States.</b>
+- <b><i>Over <a href="https://github.com/RescueSocial/Cases_Film_Music_Arts_Hollywood">500 Cases in Film, Music, Arts</a> are in a growing repository and with Assistance from across the United States.</i></b>
 - <b>Consumer Financial Protection Bureau</b><br>
 https://www.consumerfinance.gov
 

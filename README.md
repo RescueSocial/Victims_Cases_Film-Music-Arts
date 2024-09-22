@@ -75,8 +75,7 @@ elements to interpersonal communication and issues via readings and film viewing
 <img src="https://img.youtube.com/vi/Igs1WM2pA54/0.jpg" width=45% height=45%>
 
 - <b>Comedic Metaphor - Some Like It Hot (1959) Trailer | MGM Studios - showing Musician Witnesses escaping to another state - </b> https://www.youtube.com/watch?v=97TYs2YXbJw
-
-<br><b><i></b><a href="https://www.youtube.com/watch?v=KJJlcNayRQk">Joe & Jerry Go On The Run | MGM<br></i>
+<br><b><i></b>Joe & Jerry Go On The Run | MGM<br></i>
 <a href="https://www.youtube.com/watch?v=KJJlcNayRQk">
 <img src="https://img.youtube.com/vi/KJJlcNayRQk/0.jpg" width=45% height=45%>
 

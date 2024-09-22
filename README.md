@@ -75,12 +75,9 @@ elements to interpersonal communication and issues via readings and film viewing
 <img src="https://img.youtube.com/vi/Igs1WM2pA54/0.jpg" width=45% height=45%>
 
 - <b>Comedic Metaphor - Some Like It Hot (1959) Trailer | MGM Studios - showing Musician Witnesses escaping to another state - </b> https://www.youtube.com/watch?v=97TYs2YXbJw
-<br><b><i></b>Joe & Jerry Go On The Run | MGM<br></i>
-<a href="https://www.youtube.com/watch?v=KJJlcNayRQk">
-<img src="https://img.youtube.com/vi/KJJlcNayRQk/0.jpg" width=45% height=45%>
 
 Obtaining Better Quality Comedic Metaphor:<br>
-<center><a href="https://youtu.be/60CM2-mFJWQ?si=ktvSoZyAR0vlX9UX"><img src="https://github.com/RescueSocialTech/Victims_Cases_Film-Music-Arts/blob/main/v- Jane Russell and Marilyn Monroe Confront Investigator in Movie.png" width=65% height=65%></a></center>	
+<center><a href="https://youtu.be/60CM2-mFJWQ?si=ktvSoZyAR0vlX9UX"><img src="https://github.com/RescueSocialTech/Victims_Cases_Film-Music-Arts/blob/main/v- Jane Russell and Marilyn Monroe Confront Investigator in Movie.png" width=45% height=45%></a></center>	
 
 ## Cases Related to the Arts:
 <b><i>Now Optimistic for others to Build -<br>

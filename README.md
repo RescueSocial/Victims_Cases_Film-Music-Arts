@@ -9,6 +9,7 @@
 - Similar Cases<br>
  <i>(Golden Era Hollywood to PRESENT)</i> 
 
+<center><img src="https://fredericksymphony.org/wp-content/uploads/2019/08/FSOAug19-1.jpg" width=20% height=20%/></center>
 Example:<br>
 <b>
 Status	State	Year	Moving Party	Responding Party	Moving Actions	Responding Actions	Investigators Victim	Investigators Perpetrator	Lawyers Responding	Lawyers Moving	Arts Business Areas	Responding Arts Area	Moving Arts Area	Experts Victim	Experts Perpetrators	Videos	Links											
@@ -79,8 +80,6 @@ elements to interpersonal communication and issues via readings and film viewing
 Obtaining Better Quality Comedic Metaphor:<br>
 <center><a href="https://youtu.be/60CM2-mFJWQ?si=ktvSoZyAR0vlX9UX"><img src="https://github.com/RescueSocialTech/Victims_Cases_Film-Music-Arts/blob/main/v- Jane Russell and Marilyn Monroe Confront Investigator in Movie.png" width=65% height=65%></a></center>	
 
-
-<center><img src="https://fredericksymphony.org/wp-content/uploads/2019/08/FSOAug19-1.jpg" width=30% height=30%/></center>
 
 ## Cases Related to the Arts:
 <b><i>Now Optimistic for others to Build - We will be improving this with cases analysis, as well as knowledge in VISUAL AND PERFORMING ARTS or "Hollywood" Cases, which will increase the quality improvements accessible and to save lives!</i></b>

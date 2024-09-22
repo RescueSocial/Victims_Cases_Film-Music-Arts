@@ -86,7 +86,7 @@ California's <a href="https://www.forthepeople.com/blog/california-updates-sexua
 <br>in Jane Russell and Marilyn Monroe <a href="https://youtu.be/60CM2-mFJWQ?si=ktvSoZyAR0vlX9UX">Movie</a></i>:<br>
 <center><a href="https://youtu.be/60CM2-mFJWQ?si=ktvSoZyAR0vlX9UX"><img src="https://github.com/RescueSocialTech/Victims_Cases_Film-Music-Arts/blob/main/v- Jane Russell and Marilyn Monroe Confront Investigator in Movie.png" width=45% height=45%></a></center>	
 
-<center><img src="https://images.unsplash.com/photo-1567284364258-30c429a24b81?crop=entropy&cs=tinysrgb&fit=max&fm=jpg&ixid=MnwxMjA3fDB8MXxzZWFyY2h8MXx8d2VsY29tZSUyMGFib2FyZHx8MHx8fHwxNjE5MzAxMTQ2&ixlib=rb-1.2.1&q=80&w=1080" width=20% height=20%/></center>
+<center><img src="https://images.unsplash.com/photo-1567284364258-30c429a24b81?crop=entropy&cs=tinysrgb&fit=max&fm=jpg&ixid=MnwxMjA3fDB8MXxzZWFyY2h8MXx8d2VsY29tZSUyMGFib2FyZHx8MHx8fHwxNjE5MzAxMTQ2&ixlib=rb-1.2.1&q=80&w=1080" width=40% height=40%/></center>
 
 
 ## Cases Related to the Arts - Optimistic for others to Build

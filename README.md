@@ -90,6 +90,7 @@ California's <a href="https://www.forthepeople.com/blog/california-updates-sexua
 ## Cases Related to the Arts - Optimistic for others to Build
 <b><i>We will be improving this with cases analysis, as well as knowledge in VISUAL AND PERFORMING ARTS or "Hollywood" Cases, which will increase the quality improvements accessible and to save lives!</i></b><br>
 <center><img src="https://images.unsplash.com/photo-1567284364258-30c429a24b81?crop=entropy&cs=tinysrgb&fit=max&fm=jpg&ixid=MnwxMjA3fDB8MXxzZWFyY2h8MXx8d2VsY29tZSUyMGFib2FyZHx8MHx8fHwxNjE5MzAxMTQ2&ixlib=rb-1.2.1&q=80&w=1080" width=30% height=30%/></center>
+<center><img src="https://fredericksymphony.org/wp-content/uploads/2019/08/FSOAug19-1.jpg" width=20% height=20%/></center>
 <i>Welcome Aboard</i><br>
 
 - <i>Please See the Entire Repository for Foundational Understanding, encouraging assistance and access, for Better Outcomes</i>
@@ -97,4 +98,3 @@ California's <a href="https://www.forthepeople.com/blog/california-updates-sexua
 - <b>Consumer Financial Protection Bureau</b><br>
 https://www.consumerfinance.gov
 
-<center><img src="https://fredericksymphony.org/wp-content/uploads/2019/08/FSOAug19-1.jpg" width=20% height=20%/></center>

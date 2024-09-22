@@ -69,7 +69,7 @@ elements to interpersonal communication and issues via readings and film viewing
 - Logic and Contemporary Rhetoric: <b>The Use of Reason in Everyday Life</b></i>
 (2011 version has cameras on the cover)<br><a href="https://archive.org/details/logiccontemporar0000kaha_b2b5/mode/2up">Full Free Book on Archive Org</a><br>
 
-## Elements, Guides and Comparisons
+## Elements for Perspectives, Guides and Comparisons
   Access to Better Quality, Helpful Services is Needed with Better Laws Preventing Coercion. Cases Related to the Arts are listed in Details and in Easy Documents for references to encourage knowledge and competition in business, to assist individuals.<br>
 California's <a href="https://www.forthepeople.com/blog/california-updates-sexual-abuse-and-cover-accountability-act/">AB 2777</a> was not enough. Laws against coercion will reduce the continuance of enabled harm.<br>
 

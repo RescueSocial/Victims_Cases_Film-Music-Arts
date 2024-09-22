@@ -56,7 +56,7 @@ Comparing Legislation Improvements for U.S. Laws, for example to <a href="https:
 <b>Film Use Is Mentioned for Vantage Points, although "High Noon" from Golden Hollywood is not mentioned, for better Logic and Contemporary Rhetoric:</b>
 - </b><i>Additional emphasis will be via the use of films that illustrate the material. Critical response for improvements based on case readings and films</i>
 <b>
-Compare seeing the Cases Components with Modern Re-Takes
+Compare seeing the Cases Components and as Witnesses with Modern Re-Takes
 <br><a href="https://www.youtube.com/watch?v=DbFi2SnRPT4">Modern</a> Trailer of Rear Window (1954) - James Stewart, Grace Kelly<br>
 <a href="https://www.youtube.com/watch?v=DbFi2SnRPT4">
 <img src="https://img.youtube.com/vi/DbFi2SnRPT4/0.jpg" width=45% height=45%>
@@ -69,9 +69,10 @@ elements to interpersonal communication and issues via readings and film viewing
 - Logic and Contemporary Rhetoric: <b>The Use of Reason in Everyday Life</b></i>
 (2011 version has cameras on the cover)<br><a href="https://archive.org/details/logiccontemporar0000kaha_b2b5/mode/2up">Full Free Book on Archive Org</a><br>
 
-## Additional Guides and Comparisons
+## Elements, Guides and Comparisons
   Access to Better Quality, Helpful Services is Needed with Better Laws Preventing Coercion. Cases Related to the Arts are listed in Details and in Easy Documents for references to encourage knowledge and competition in business, to assist individuals.<br>
 California's <a href="https://www.forthepeople.com/blog/california-updates-sexual-abuse-and-cover-accountability-act/">AB 2777</a> was not enough. Laws against coercion will reduce the continuance of enabled harm.<br>
+
 <b><i>"A-List (artists), wall-street titans, famous sports stars, (billionaires-finances), heads of studios, politicians, you know some of the most powerful people in the world and it was the company everyone wanted to be in..."</b>
 <br>See Molly's Game | On-set visit with Molly Bloom "Writer": https://www.youtube.com/watch?v=XCb4DJ7qfN0</i><br>
 - In <a href="https://github.com/RescueSocial/Victims_Cases_Film-Music-Arts/tree/main/Cases%20Documentation-Filings"><b>Documentations-Cases</a> and <a href="https://github.com/RescueSocial/Victims_Cases_Film-Music-Arts/tree/main/Perceptions%20Guides%20to%20Fixers">Perception Guides to Fixers</a>, see educational film sequences and interviews</b>:

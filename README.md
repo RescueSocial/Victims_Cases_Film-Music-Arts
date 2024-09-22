@@ -70,12 +70,12 @@ elements to interpersonal communication and issues via readings and film viewing
 (2011 version has cameras on the cover)<br><a href="https://archive.org/details/logiccontemporar0000kaha_b2b5/mode/2up">Full Free Book on Archive Org</a><br>
 
 ## Elements for Perspectives, Guides and Comparisons
-  Better Quality, Helpful Services is Needed with Access and Better Laws Preventing Coercion. Cases Related to the Arts are listed in Details and in Easy Documents for references to encourage knowledge and competition in business, to assist individuals.<br>
+  Better Quality, Helpful Services are Needed with Access and Better Laws Preventing Coercion. Cases Related to the Arts are listed in Details and in Easy Documents for references to encourage knowledge and competition in business, to assist individuals.<br>
 
 <b><i>"A-List (artists), wall-street titans, famous sports stars, (billionaires-finances), heads of studios, politicians, you know some of the most powerful people in the world and it was the company everyone wanted to be in..."</b>
 <br>See Molly's Game | On-set visit with Molly Bloom "Writer": https://www.youtube.com/watch?v=XCb4DJ7qfN0</i><br>
 
-- California's <a href="https://www.forthepeople.com/blog/california-updates-sexual-abuse-and-cover-accountability-act/">AB 2777</a> was not enough. Laws against coercion will reduce the continuance of enabled harm.<br>
+- <i>California's <a href="https://www.forthepeople.com/blog/california-updates-sexual-abuse-and-cover-accountability-act/">AB 2777</a> was not enough. Laws against coercion will reduce the continuance of enabled harm.<br></i>
 
 - In <a href="https://github.com/RescueSocial/Victims_Cases_Film-Music-Arts/tree/main/Cases%20Documentation-Filings"><b>Documentations-Cases</a> and <a href="https://github.com/RescueSocial/Victims_Cases_Film-Music-Arts/tree/main/Perceptions%20Guides%20to%20Fixers">Perception Guides to Fixers</a>, see educational film sequences and interviews</b>:
 <br><b><i></b><a href="https://www.youtube.com/watch?v=Igs1WM2pA54">Dial M</a> (1954) - Example Coercion Scene: Your Word Against Mine (2/10) | Movieclips, in Context<br></i>

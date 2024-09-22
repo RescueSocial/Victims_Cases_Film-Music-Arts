@@ -87,7 +87,7 @@ Obtaining Better Quality Comedic Metaphor with Intercommunication<i>, in Jane Ru
 <b><i>We will be improving this with cases analysis, as well as knowledge in VISUAL AND PERFORMING ARTS or "Hollywood" Cases, which will increase the quality improvements accessible and to save lives!</i></b><br>
 
 - <i>Please See the Entire Repository for Foundational Understanding, encouraging assistance and access, for Better Outcomes</i>
-- Over 500 Cases in Film, Music, Arts are in this other repository, Assisted from across the United States: https://github.com/RescueSocial/Cases_Film_Music_Arts_Hollywood
+- Over <a href="https://github.com/RescueSocial/Cases_Film_Music_Arts_Hollywood">500 Cases in Film, Music, Arts</a> are in this another repository, Assisted from across the United States.
 - <b>Consumer Financial Protection Bureau</b><br>
 https://www.consumerfinance.gov
 

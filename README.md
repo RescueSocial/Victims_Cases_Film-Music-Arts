@@ -92,8 +92,8 @@ California's <a href="https://www.forthepeople.com/blog/california-updates-sexua
 <b><i>We will be improving this with cases analysis, as well as knowledge in VISUAL AND PERFORMING ARTS or "Hollywood" Cases, which will increase the quality improvements accessible and to save lives!</i></b><br>
 <i>Welcome Aboard</i><br>
 
-- <i>Please See the Entire Repository for Foundational Understanding, encouraging assistance and access, for Better Outcomes</i>
 - <b><i>Over <a href="https://github.com/RescueSocial/Cases_Film_Music_Arts_Hollywood">500 Cases in Film, Music, Arts</a> are growing and with Assistance from across the United States.</i></b>
+- <i>Please See the Entire Repository for Foundational Understanding, for Better Outcomes</i>
 - <b>Consumer Financial Protection Bureau</b><br>
 https://www.consumerfinance.gov
 

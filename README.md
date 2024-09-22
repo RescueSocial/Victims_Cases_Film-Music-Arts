@@ -20,7 +20,7 @@ Status	State	Year	Moving Party	Responding Party	Moving Actions	Responding Action
 
 ## <i>Foundational Examples - As Many Cases as Possible with Categories</i>
 <b>Needing <i>Better Quality, Access to Services, and Better Lives</i> in the Arts, 165 Cases are Listed as Foundations to the Present.
-<br>Because of lacking laws in California, in comparison to for instance Coercion laws in New York, <b><a href="https://theaccidentalgangster.com/about-us/">countless</a></b> people have been harmed related to the Arts. <i>In one case alone, 500 people had to sue in the 2000s onward.</i><br>
+<br>Because of lacking laws in California, in comparison to, for instance, Coercion laws in New York, <b><a href="https://theaccidentalgangster.com/about-us/">countless</a></b> people have been harmed related to the Arts. <i>In one case alone, 500 people had to sue in the 2000s onward.</i><br>
 - <b>Starting Example with Elements:</b></b> Joe DiMaggio <i><b>used</b></i> a private eye to surveil and <i><b>strong-arm</b></i> Marilyn Monroe as divorce granted <b>(Overlapping Legal Claim)</b>… LAPD investigated a <b>foiled</b> burglary (by fixers)... (fixers) <b>Sold</b> the “wrong-door raid” story to Confidential magazine, where it appeared in the September 1955 issue… and, without suspects [witnesses and evidence not in the story], the <b>case</b> faded.<br>
 <i>"<b>California</b> state senator Fred Kraft… cited the incident as an example of “strong-arm” <b>tactics</b> by private eyes in the service of the magazine [and others]."</i> By 1978 to <i>Today</i>...
 
@@ -70,7 +70,7 @@ elements to interpersonal communication and issues via readings and film viewing
 (2011 version has cameras on the cover)<br><a href="https://archive.org/details/logiccontemporar0000kaha_b2b5/mode/2up">Full Free Book on Archive Org</a><br>
   
 - Under <a href="https://github.com/RescueSocial/Victims_Cases_Film-Music-Arts/tree/main/Cases%20Documentation-Filings">Documentations-Cases</a> and <a href="https://github.com/RescueSocial/Victims_Cases_Film-Music-Arts/tree/main/Perceptions%20Guides%20to%20Fixers">Perception Guides to Fixers</a>, see educational film sequences and interviews:
-<br><b><i></b><a href="https://www.youtube.com/watch?v=Igs1WM2pA54">Dial M</a> (1954) - Your Word Against Mine Scene (2/10) | Movieclips<br></i>
+<br><b><i></b><a href="https://www.youtube.com/watch?v=Igs1WM2pA54">Dial M</a> (1954) - Your Word Against Mine Scene (2/10) | Movieclips, in Context<br></i>
 <a href="https://www.youtube.com/watch?v=Igs1WM2pA54">
 <img src="https://img.youtube.com/vi/Igs1WM2pA54/0.jpg" width=45% height=45%>
 

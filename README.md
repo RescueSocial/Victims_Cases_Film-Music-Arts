@@ -82,7 +82,7 @@ elements to interpersonal communication and issues via readings and film viewing
 <a href="https://www.youtube.com/watch?v=Igs1WM2pA54">
 <img src="https://img.youtube.com/vi/Igs1WM2pA54/0.jpg" width=45% height=45%></a><br>
 <i><b>Example Scene</b> Next Step of "Fixing" - After Coercion<br> 
-<b><i><a href="https://www.youtube.com/watch?v=DaWi5EoJVGA"><b>Dial M</a>M</b> (1954) - A Very Serious Position Scene - Alfred Hitchcock Film with Grace Kelly (7/10) | <b>Movieclips</b>: <br>https://www.youtube.com/watch?v=DaWi5EoJVGA<br>
+<b><i><a href="https://www.youtube.com/watch?v=DaWi5EoJVGA">Dial M</a>M</b> (1954) - A Very Serious Position Scene - Alfred Hitchcock Film with Grace Kelly (7/10) | <b>Movieclips</b>: <br>https://www.youtube.com/watch?v=DaWi5EoJVGA<br>
 (Without Witness, Now Focusing on a Letter, Tampered Objects)<br>
 (Laws in California Can Focus on Objects and Financials Without New York's Conduct)</i><br><br>
 

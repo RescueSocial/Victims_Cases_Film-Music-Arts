@@ -9,11 +9,10 @@
 - Similar Cases<br>
  <i>(Golden Era Hollywood to PRESENT)</i> 
 
-<b>Example Presentation of Cases:<br>
+<b>Example of Presentation of Cases:<br></b>
 </b>
 - Investigated -	California -	1954 -	<i>Joe DiMaggio	Marilyn Monroe</i> -	Surveilled, Strong Arming, Break In	- 	Barney Rudisky	-		Film, Sports, Fixers					<br>	https://www.vanityfair.com/hollywood/2003/04/robert-harrison-confidential-magazine		
 - Categories: Status	State	Year	Moving Party	Responding Party	Moving Actions	Responding Actions	Investigators Victim	Investigators Perpetrator	Lawyers Responding	Lawyers Moving	Arts Business Areas	Responding Arts Area	Moving Arts Area	Experts Victim	Experts Perpetrators	Videos	Links											
-<br>
 </b>
 <i>Optimistic Skyline for <b>Cases Related to Film, Music, Arts</b><br></i>
 <center><img src="https://github.com/RescueSocialTech/Victims_Cases_Film-Music-Arts/blob/main/z- skyline new york city.jpg"></center>	

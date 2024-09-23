@@ -13,7 +13,7 @@
 <br><i>In one Case alone, 500 people had to sue against Fixers in the <a href="https://www.hollywoodreporter.com/business/business-news/anthony-pellicano-wiretap-lawsuit-nears-562721/">2000s Onward</a> without remedying the Elements of the coercive conduct used.</i><br>
 - <i><b>This is a start for better assistance away from sporadic updates implicating the issues of the time.</i></b><br>
 
-<b>Example Presentation of Cases:<br></b>
+<b>Starting Example of Cases:<br></b>
 - Investigated -	California -	1954 -	<i>Joe DiMaggio	Marilyn Monroe</i> -	Surveilled, <b>Strong Arming,</b> Break In	- 	<i>Barney Rudisky</i>	-		Film, Sports, Fixers					<br>	https://www.vanityfair.com/hollywood/2003/04/robert-harrison-confidential-magazine		
 - </b>Categories - Status	State	Year	Moving Party	Responding Party	Moving Actions	Responding Actions	Investigators Victim	Investigators Perpetrator	Lawyers Responding	Lawyers Moving	Arts Business Areas	Responding Arts Area	Moving Arts Area	Experts Victim	Experts Perpetrators	Videos	Links											
 
@@ -81,7 +81,7 @@ elements to interpersonal communication and issues via readings and film viewing
 <a href="https://www.youtube.com/watch?v=Igs1WM2pA54">
 <img src="https://img.youtube.com/vi/Igs1WM2pA54/0.jpg" width=45% height=45%></a><br>
 - <i><b>Example Scene <i><a href="https://www.youtube.com/watch?v=DaWi5EoJVGA">Dial M</a></b> (1954) - A Very Serious Position Scene - Alfred Hitchcock Film with Grace Kelly (7/10) | <b>Movieclips</b>: https://www.youtube.com/watch?v=DaWi5EoJVGA<br>
-Next Step of "Fixing" in Scene - After Coercion, Without Witness, Now Focusing on a Letter, Tampered Objects<br>
+Next Step "Fixing" - After Coercion, Without Witness, Now Focusing on a Letter, Tampered Objects<br>
 Laws and Processes in California Can Focus on Objects and Financials Without New York's <b>Conduct</b> in a Coercion type law</i><br><br>
 
 - <b>Comedic Metaphor </b>- Some Like It Hot (1959) <b>Trailer | MGM Studios - showing Musician Witnesses escaping to another state - </b> https://www.youtube.com/watch?v=97TYs2YXbJw

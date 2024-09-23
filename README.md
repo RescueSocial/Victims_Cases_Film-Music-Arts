@@ -10,7 +10,7 @@
  <i>(Golden Era Hollywood to PRESENT)</i> 
 
 <b>Needing <i>Better Quality, Access to Services, and Better Lives</i> in the Arts, 165 Cases are Listed as Foundations to Present.</b> Due to lacking laws in California and lack of access to quality assistance, in comparison to, for instance Coercion laws in New York, <b><a href="https://theaccidentalgangster.com/about-us/">Countless</a></b> people have been harmed Related to the Arts.
-<br><i>In one Case alone, 500 people had to sue against Fixers in the <a href="https://www.hollywoodreporter.com/business/business-news/anthony-pellicano-wiretap-lawsuit-nears-562721/">2000s onward</a>.</i><br>
+<br><i>In one Case alone, 500 people had to sue against Fixers in the <a href="https://www.hollywoodreporter.com/business/business-news/anthony-pellicano-wiretap-lawsuit-nears-562721/">2000s Onward</a>.</i><br>
 
 <b>Example Presentation of Cases:<br></b>
 - Investigated -	California -	1954 -	<i>Joe DiMaggio	Marilyn Monroe</i> -	Surveilled, Strong Arming, Break In	- 	<i>Barney Rudisky</i>	-		Film, Sports, Fixers					<br>	https://www.vanityfair.com/hollywood/2003/04/robert-harrison-confidential-magazine		

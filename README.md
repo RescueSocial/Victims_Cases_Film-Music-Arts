@@ -11,7 +11,7 @@
 
 <b>Needing <i>Better Quality, Access to Services, and Better Lives</i> in the Arts, 165 Cases are Listed as Foundations to Present.</b> Due to lacking laws in California and lack of access to quality assistance, in comparison to, for instance Coercion laws in <a href="https://newyork.public.law/laws/n.y._penal_law_section_135.60">New York</a>, <b><a href="https://theaccidentalgangster.com/about-us/">Countless</a></b> people have been harmed Related to the Arts.
 <br><i>In one Case alone, 500 people had to sue against Fixers in the <a href="https://www.hollywoodreporter.com/business/business-news/anthony-pellicano-wiretap-lawsuit-nears-562721/">2000s Onward</a>.</i><br>
-- <i><b>This is to move this sector to better assistance away from sporadic updates based on the issues of the time.</i></b></b><br>
+- <i><b>This is to move this sector to better assistance away from sporadic updates based on the issues of the time.</i></b><br>
 
 <b>Example Presentation of Cases:<br></b>
 - Investigated -	California -	1954 -	<i>Joe DiMaggio	Marilyn Monroe</i> -	Surveilled, Strong Arming, Break In	- 	<i>Barney Rudisky</i>	-		Film, Sports, Fixers					<br>	https://www.vanityfair.com/hollywood/2003/04/robert-harrison-confidential-magazine		
@@ -28,7 +28,7 @@
 <br>*<i>The Cases</i> are organized for Prevention Importance and years.
 <br>
 <center><img src="https://github.com/RescueSocialTech/Victims_Cases_Film-Music-Arts/blob/main/z-film-arts-banner.jpg" width="600" height="100"></center>	
-<i><b>*Legislation Improvements are needed, and having research of the common problems of cases over Decades that prevent people in the Visual & Performing Arts from having a just legal system either outside or inside of court, related to a mixing of tactics that are not helpful, exploitative to disastrous.
+<i><b>*Legislation Improvements are needed, and having research of the common problems of cases over Decades that prevent people in the Visual & Performing Arts from having a just legal system either outside or inside of court, related to a mixing of tactics that are not helpful, exploitative to disastrous.</b>
 
 - <i>"The Price of LA" pilot TV show for Buzz is an example of speaking with a <b>Witness</b> while at a nightclub:</i>
 <br>[Watch the video](https://vimeo.com/311363928)

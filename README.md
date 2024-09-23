@@ -1,4 +1,4 @@
-# Victims Cases Film-Music-Arts
+# Victims Cases Film, Music, Arts
 <h3>165 Cases Foundation in Film, Music, Arts of Victims/Witnesses (Visual & Performing Arts) to Improve Quality & Save Lives</h3>
 <i><b>Accessible Information for Better Servicing and Legislation in the Arts.</i></b>
 <br><b>Guides, Demonstrations, Documentations, and Analysis</b> including Perspectives in "The Business." </i><br> 

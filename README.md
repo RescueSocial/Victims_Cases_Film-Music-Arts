@@ -88,7 +88,7 @@ Next Step "Fixing" - After Coercion, Without Witness, Now Focusing on a Letter, 
 <i><br>Joe and Jerry, Musician Witnesses, on the run in an MGM film, <a href="https://www.youtube.com/watch?v=KJJlcNayRQk">Scene of alleged Fixers implications (See Guide)</a>.</i><br>
 <i>- Context Illustration in Full Film of <a href="https://archive.org/details/dial.-m.-for.-murder.-1954.720p.-br-rip.x-264.-yify">Dial M on Archive Org</a></i>
 
-<i>Obtaining Better Quality, Comedic Metaphor, with Intercommunication 
+<i><b>Obtaining Better Quality<b>, Comedic Metaphor, with <b>Intercommunication</b> 
 <br>in Jane Russell and Marilyn Monroe <a href="https://youtu.be/60CM2-mFJWQ?si=ktvSoZyAR0vlX9UX">Movie</a></i>:<br>
 <center><a href="https://youtu.be/60CM2-mFJWQ?si=ktvSoZyAR0vlX9UX"><img src="https://github.com/RescueSocialTech/Victims_Cases_Film-Music-Arts/blob/main/v- Jane Russell and Marilyn Monroe Confront Investigator in Movie.png" width=45% height=45%></a></center>	
 

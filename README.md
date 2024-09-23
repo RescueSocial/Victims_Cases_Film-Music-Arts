@@ -23,9 +23,9 @@
 - <b>Starting <a href="https://www.vanityfair.com/hollywood/2003/04/robert-harrison-confidential-magazine">Example</a> with Elements - </b></b> Joe DiMaggio <i><b>used</b></i> a private eye to surveil and <i><b>strong-arm</b></i> Marilyn Monroe as divorce granted <b>(Overlapping Legal Claim)</b>… LAPD investigated a <b>foiled</b> burglary (by fixers)... (fixers) <b>Sold</b> the “wrong-door raid” story to Confidential magazine, where it appeared in the September 1955 issue… and, without suspects <i>[witnesses and evidence not in the story]</i>, the <b>case</b> faded.<br>
 <i>"<b>California</b> state senator Fred Kraft… cited the incident as an example of “strong-arm” <b>tactics</b> by private eyes in the service of the magazine [and others]."</i> By 1978 to <i>Today</i>...
 
-<b>This is highly useful for people who need to see Conflicts of Interests as well as to Encourage Assistance from anywhere to study this more in a Fair and Just way that provides Guidance.</b>
-- <i><b>This is for better assistance away from updates implicating the issues of the time.</i></b><br>
-<br>*<i>The Cases</i> are organized for Prevention Importance and years.
+<b>This is highly useful for people who need to see Conflicts of Interests as well as to Encourage Assistance from anywhere to study this more in a Fair and Just way that provides Guidance.</b><br>
+<i><b>This is for better assistance away from updates implicating the issues of the time.</i></b><br>
+*<i>The Cases</i> are organized for Prevention Importance and years.
 <br>
 <center><img src="https://github.com/RescueSocialTech/Victims_Cases_Film-Music-Arts/blob/main/z-film-arts-banner.jpg" width="600" height=100"></center>	
 <i><b>*Legislation Improvements are needed, and having research of the common problems of cases over Decades that prevent people in the Visual & Performing Arts from having a just legal system either outside or inside of court, related to a mixing of tactics that are not helpful, exploitative to disastrous.</b><br><br>

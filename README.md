@@ -83,7 +83,7 @@ elements to interpersonal communication and issues via readings and film viewing
 - <i><b>Example Scene <i><a href="https://www.youtube.com/watch?v=DaWi5EoJVGA">Dial M</a></b> (1954) - A Very Serious Position Scene - Alfred Hitchcock Film with Grace Kelly (7/10) | <b>Movieclips</b>: https://www.youtube.com/watch?v=DaWi5EoJVGA<br>
 Next Step "Fixing" - After Coercion, Without Witness, Now Focusing on a Letter, Tampered Objects<br>
 - Laws and Processes in California Can Focus on Objects and Financials Without New York's <b>Conduct</b> Coercion type law Addressing <b>Elements</b></i><br>
-- More Context of the Binding in Illustration is in <a href="https://archive.org/details/dial.-m.-for.-murder.-1954.720p.-br-rip.x-264.-yify">Full Movie of Dial M</a><br><br>
+- More Context in Illustration is in <a href="https://archive.org/details/dial.-m.-for.-murder.-1954.720p.-br-rip.x-264.-yify">Full Film of Dial M</a><br><br>
 
 - <b>Comedic Metaphor </b>- Some Like It Hot (1959) <b>Trailer | MGM Studios - showing Musician Witnesses escaping to another state - </b> https://www.youtube.com/watch?v=97TYs2YXbJw
 <i><br>Joe and Jerry, Musician Witnesses, on the run in an MGM film, <a href="https://www.youtube.com/watch?v=KJJlcNayRQk">Scene of alleged Fixer implications (See Guide)</a>.</i>

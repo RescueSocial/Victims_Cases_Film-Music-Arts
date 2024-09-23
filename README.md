@@ -65,8 +65,8 @@ Compare seeing the Cases Components and as Witnesses with Modern Re-Takes
 </b><i>Comprehensive in the principles and methods of critical thinking and effective communication. Learn the <b>Elements of These Cases</b> and types of
 argument, logic-related impediments and fallacies, elements in respect to cogent reasoning, as well as the methods for recognizing and analyzing argumentative rhetoric and extended arguments. A special emphasis will be on the practical application of the aforementioned
 elements to interpersonal communication and issues via readings and film viewings.<br>
-- Logic and Contemporary Rhetoric: <b>The Use of Reason in Everyday Life</b></i>
-(2011 version has cameras on the cover)<br><a href="https://archive.org/details/logiccontemporar0000kaha_b2b5/mode/2up">Full Free Book on Archive Org</a><br>
+- Logic and Contemporary Rhetoric: <b>The Use of Reason in Everyday Life</b>
+(2011 version has cameras on the cover)</i><br><a href="https://archive.org/details/logiccontemporar0000kaha_b2b5/mode/2up">Full Free Book on Archive Org</a><br>
 
 ## Elements for Perspectives, Guides and Comparisons
   Better Quality, Helpful Services are Needed with Access and Better Laws Preventing Coercion. Cases Related to the Arts are listed in Details and in Easy Documents for references to encourage knowledge and competition in business, to assist individuals.<br>

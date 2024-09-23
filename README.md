@@ -9,7 +9,7 @@
 - Similar Cases<br>
  <i>(Golden Era Hollywood to PRESENT)</i> 
 
-<b>Needing Better Quality, Access to Services, and Better Lives in the Arts, 165 Cases are Listed as Foundations.
+<b>Needing Better Quality, Access to Services, and Better Lives in the Arts, 165 Cases are Listed as Foundations to Today.
 
 <b>Example Presentation of Cases:<br></b>
 - Investigated -	California -	1954 -	<i>Joe DiMaggio	Marilyn Monroe</i> -	Surveilled, Strong Arming, Break In	- 	<i>Barney Rudisky</i>	-		Film, Sports, Fixers					<br>	https://www.vanityfair.com/hollywood/2003/04/robert-harrison-confidential-magazine		

@@ -13,7 +13,7 @@
 
 <b>Example Presentation of Cases:<br></b>
 </b>
-- Investigated -	California -	1954 -	<i>Joe DiMaggio	Marilyn Monroe</i> -	Surveilled, Strong Arming, Break In	- 	Barney Rudisky	-		Film, Sports, Fixers					<br>	https://www.vanityfair.com/hollywood/2003/04/robert-harrison-confidential-magazine		
+- Investigated -	California -	1954 -	<i>Joe DiMaggio	Marilyn Monroe</i> -	Surveilled, Strong Arming, Break In	- 	<i>Barney Rudisky</i>	-		Film, Sports, Fixers					<br>	https://www.vanityfair.com/hollywood/2003/04/robert-harrison-confidential-magazine		
 - Categories: Status	State	Year	Moving Party	Responding Party	Moving Actions	Responding Actions	Investigators Victim	Investigators Perpetrator	Lawyers Responding	Lawyers Moving	Arts Business Areas	Responding Arts Area	Moving Arts Area	Experts Victim	Experts Perpetrators	Videos	Links											
 </b>
 <i>Optimistic Skyline for <b>Cases Related to Film, Music, Arts</b><br></i>
@@ -92,7 +92,7 @@ Next Step of "Fixing" - After Coercion, Without Witness, Now Focusing on a Lette
 <br>in Jane Russell and Marilyn Monroe <a href="https://youtu.be/60CM2-mFJWQ?si=ktvSoZyAR0vlX9UX">Movie</a></i>:<br>
 <center><a href="https://youtu.be/60CM2-mFJWQ?si=ktvSoZyAR0vlX9UX"><img src="https://github.com/RescueSocialTech/Victims_Cases_Film-Music-Arts/blob/main/v- Jane Russell and Marilyn Monroe Confront Investigator in Movie.png" width=45% height=45%></a></center>	
 
-<center><img src="https://images.unsplash.com/photo-1567284364258-30c429a24b81?crop=entropy&cs=tinysrgb&fit=max&fm=jpg&ixid=MnwxMjA3fDB8MXxzZWFyY2h8MXx8d2VsY29tZSUyMGFib2FyZHx8MHx8fHwxNjE5MzAxMTQ2&ixlib=rb-1.2.1&q=80&w=1080" width=45% height=45%/>
+<br><center><img src="https://images.unsplash.com/photo-1567284364258-30c429a24b81?crop=entropy&cs=tinysrgb&fit=max&fm=jpg&ixid=MnwxMjA3fDB8MXxzZWFyY2h8MXx8d2VsY29tZSUyMGFib2FyZHx8MHx8fHwxNjE5MzAxMTQ2&ixlib=rb-1.2.1&q=80&w=1080" width=40% height=40%/>
 
 ## Cases Related to the Arts - Optimistic for others to Build
 <b><i>We will be improving this with cases analysis, as well as knowledge in VISUAL AND PERFORMING ARTS or "Hollywood" Cases, which will increase the quality improvements accessible and to save lives!</i></b><br>

@@ -82,7 +82,7 @@ elements to interpersonal communication and issues via readings and film viewing
 <a href="https://www.youtube.com/watch?v=Igs1WM2pA54">
 <img src="https://img.youtube.com/vi/Igs1WM2pA54/0.jpg" width=45% height=45%></a><br>
 <i><b>Example Scene</b> Next Step of "Fixing" - After Coercion and Without Witness, Now Focusing on a Letter, Tampered Objects<br> 
-<b><i></b><a href="https://www.youtube.com/watch?v=DaWi5EoJVGA">Dial M</a> (1954) - A Very Serious Position Scene - Alfred Hitchcock Film with Grace Kelly (7/10) | Movieclips: https://www.youtube.com/watch?v=DaWi5EoJVGA<br>
+<b><i></b><a href="https://www.youtube.com/watch?v=DaWi5EoJVGA">Dial M</a> (1954) - A Very Serious Position Scene - Alfred Hitchcock Film with Grace Kelly (7/10) | <b>Movieclips</b>: https://www.youtube.com/watch?v=DaWi5EoJVGA<br>
 (Laws in California Can Focus on Objects and Financials Without New York's Conduct)</i><br><br>
 
 - <b>Comedic Metaphor </b>- Some Like It Hot (1959) <b>Trailer | MGM Studios - showing Musician Witnesses escaping to another state - </b> https://www.youtube.com/watch?v=97TYs2YXbJw

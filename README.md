@@ -84,7 +84,7 @@ elements to interpersonal communication and issues via readings and film viewing
 - After Coercion and Without Witness, Now Focusing on a Letter, Tampered Objects<br>
 <br><b><i></b><a href="https://www.youtube.com/watch?v=DaWi5EoJVGA">Dial M (1954) - A Very Serious Position Scene (7/10)<br></i>
 <a href="https://www.youtube.com/watch?v=DaWi5EoJVGA">
-<img src="https://img.youtube.com/vi/Igs1WM2pA54/0.jpg" width=45% height=45%>
+<img src="https://img.youtube.com/vi/DaWi5EoJVGA/0.jpg" width=45% height=45%>
 
 - <b>Comedic Metaphor </b>- Some Like It Hot (1959) <b>Trailer | MGM Studios - showing Musician Witnesses escaping to another state - </b> https://www.youtube.com/watch?v=97TYs2YXbJw
 <i><br>Joe and Jerry, Musician Witnesses, on the run in an MGM film, <a href="https://www.youtube.com/watch?v=KJJlcNayRQk">Scene of alleged Fixer implications (See Guide)</a>.</i>

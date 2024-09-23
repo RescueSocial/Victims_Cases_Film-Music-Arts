@@ -9,7 +9,7 @@
 - Similar Cases<br>
  <i><b>(Golden Era Hollywood to PRESENT)</b></i> 
 
-<b>Needing <i>Better Quality, Access to Services, and Better Lives</i> in the Arts, 165 Cases are Listed as Foundations to Present.</b> Due to lacking laws in California and lack of access to quality assistance, in comparison to, for instance Coercion laws in New York, <b><a href="https://theaccidentalgangster.com/about-us/">Countless</a></b> people have been harmed Related to the Arts.
+<b>Needing <i>Better Quality, Access to Services, and Better Lives</i> in the Arts, 165 Cases are Listed as Foundations to Present.</b> Due to lacking laws in California and lack of access to quality assistance, in comparison to, for instance Coercion laws in <a href="https://newyork.public.law/laws/n.y._penal_law_section_135.60">New York</a>, <b><a href="https://theaccidentalgangster.com/about-us/">Countless</a></b> people have been harmed Related to the Arts.
 <br><i>In one Case alone, 500 people had to sue against Fixers in the <a href="https://www.hollywoodreporter.com/business/business-news/anthony-pellicano-wiretap-lawsuit-nears-562721/">2000s Onward</a>.</i><br>
 
 <b>Example Presentation of Cases:<br></b>
@@ -91,7 +91,7 @@ Next Step of "Fixing" - After Coercion, Without Witness, Now Focusing on a Lette
 <br>in Jane Russell and Marilyn Monroe <a href="https://youtu.be/60CM2-mFJWQ?si=ktvSoZyAR0vlX9UX">Movie</a></i>:<br>
 <center><a href="https://youtu.be/60CM2-mFJWQ?si=ktvSoZyAR0vlX9UX"><img src="https://github.com/RescueSocialTech/Victims_Cases_Film-Music-Arts/blob/main/v- Jane Russell and Marilyn Monroe Confront Investigator in Movie.png" width=45% height=45%></a></center>	
 
-<center><img src="https://images.unsplash.com/photo-1567284364258-30c429a24b81?crop=entropy&cs=tinysrgb&fit=max&fm=jpg&ixid=MnwxMjA3fDB8MXxzZWFyY2h8MXx8d2VsY29tZSUyMGFib2FyZHx8MHx8fHwxNjE5MzAxMTQ2&ixlib=rb-1.2.1&q=80&w=1080" width=40% height=40%/></center>
+<center><br><img src="https://images.unsplash.com/photo-1567284364258-30c429a24b81?crop=entropy&cs=tinysrgb&fit=max&fm=jpg&ixid=MnwxMjA3fDB8MXxzZWFyY2h8MXx8d2VsY29tZSUyMGFib2FyZHx8MHx8fHwxNjE5MzAxMTQ2&ixlib=rb-1.2.1&q=80&w=1080" width=40% height=40%/></center>
 
 ## Cases Related to the Arts - Optimistic for others to Build
 <b><i>We will be improving this with cases analysis, as well as knowledge in VISUAL AND PERFORMING ARTS or "Hollywood" Cases, which will increase the quality improvements accessible and to save lives!</i></b><br>

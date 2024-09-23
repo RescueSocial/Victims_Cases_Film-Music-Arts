@@ -80,9 +80,9 @@ elements to interpersonal communication and issues via readings and film viewing
 - In <a href="https://github.com/RescueSocial/Victims_Cases_Film-Music-Arts/tree/main/Cases%20Documentation-Filings"><b>Documentations-Cases</a> and <a href="https://github.com/RescueSocial/Victims_Cases_Film-Music-Arts/tree/main/Perceptions%20Guides%20to%20Fixers">Perception Guides to Fixers</a>, see educational film sequences and interviews</b>:
 <br><b><i></b><a href="https://www.youtube.com/watch?v=Igs1WM2pA54">Dial M</a> (1954) - Example Coercion Scene: Your Word Against Mine (2/10) | Movieclips, in Context<br></i>
 <a href="https://www.youtube.com/watch?v=Igs1WM2pA54">
-<img src="https://img.youtube.com/vi/Igs1WM2pA54/0.jpg" width=45% height=45%><br>
+<img src="https://img.youtube.com/vi/Igs1WM2pA54/0.jpg" width=45% height=45%>
 - Example Scene of Result <i>- After Coercion and Without Witness, Now Focusing on a Letter, Tampered Objects</i><br>
-<br><b><i></b><a href="https://www.youtube.com/watch?v=DaWi5EoJVGA">Dial M</a> (1954) - A Very Serious Position Scene, with Grace Kelly (7/10): https://www.youtube.com/watch?v=DaWi5EoJVGA<br></i>
+<br><b><i></b><a href="https://www.youtube.com/watch?v=DaWi5EoJVGA">Dial M</a> (1954) - A Very Serious Position Scene - Alfred Hitchcock Film with Grace Kelly (7/10): https://www.youtube.com/watch?v=DaWi5EoJVGA<br></i><br>
 
 - <b>Comedic Metaphor </b>- Some Like It Hot (1959) <b>Trailer | MGM Studios - showing Musician Witnesses escaping to another state - </b> https://www.youtube.com/watch?v=97TYs2YXbJw
 <i><br>Joe and Jerry, Musician Witnesses, on the run in an MGM film, <a href="https://www.youtube.com/watch?v=KJJlcNayRQk">Scene of alleged Fixer implications (See Guide)</a>.</i>

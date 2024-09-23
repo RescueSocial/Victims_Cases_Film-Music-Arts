@@ -9,7 +9,7 @@
 - Similar Cases<br>
  <i>(Golden Era Hollywood to PRESENT)</i> 
 
-<b>Needing <i>Better Quality, Access to Services, and Better Lives</i> in the Arts, 165 Cases are Listed as Foundations to the Present.<br>
+Needing <i>Better Quality, Access to Services, and Better Lives</i> in the Arts, 165 Cases are Listed as Foundations to the Present.<br>
 
 <b>Example of Presentation of Cases:<br>
 </b>

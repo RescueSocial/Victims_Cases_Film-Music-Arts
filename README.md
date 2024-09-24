@@ -27,7 +27,7 @@
 *<i>The Cases</i> are organized for Prevention Importance and years.
 <br>
 <center><img src="https://github.com/RescueSocialTech/Victims_Cases_Film-Music-Arts/blob/main/z-film-arts-banner.jpg" width="600" height=100"></center>	
-<i><b>*Legislation Improvements are needed, and having research of the common problems of cases over Decades that prevent people in the Visual & Performing Arts from having a just legal system either outside or inside of court, related to a mixing of tactics that are not helpful, exploitative to disastrous.</b><br>
+<i><b>*Legislation Improvements are needed, and having research is needed of the common problems of cases over Decades that prevent people in the Visual & Performing Arts from having a just legal system either outside or inside of court, related to a mixing of tactics that are not helpful, exploitative to disastrous.</b><br>
 <i><b>This is for better assistance away from updates implicating the issues of the time, for optimistic horizons.</i></b><br><br>
 
 - "The Price of LA" pilot TV show for Buzz is an example of speaking with a <b>Witness</b> while at a nightclub:</i>

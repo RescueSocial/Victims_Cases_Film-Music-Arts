@@ -6,7 +6,7 @@
 <br>
 [![Confidential Documentary](https://img.youtube.com/vi/YW1yH-bTWi8/0.jpg)](https://youtu.be/YW1yH-bTWi8)
 
-- <i>"The Price of LA" pilot TV show for Buzz is an example speaking with a Witness while at a nightclub:</i> 
+- <i>"The Price of LA" pilot TV show for Buzz is an example speaking with a Witness while at a nightclub:</i>
 <br>[Watch the video](https://vimeo.com/311363928)
 
 Some interesting points when observing enablement, which can be profitable for enablers, <b>is that Witness Dennis Davern and 700 people petitioned to re-open the investigation</b> about Natalie Wood: https://www.cbsnews.com/news/natalie-wood-death-in-dark-water

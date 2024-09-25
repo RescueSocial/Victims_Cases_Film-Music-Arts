@@ -1,10 +1,10 @@
 ## Start to Documentations of Cases Related to the Arts
 <b></i>With improvements, this is a start for better assistance away from updates implicating the issues of the time for better lives for people in the arts.</i></b><br>
 
-<i>Cheer Up.</i> "The answer is that you're already building a chronology in each case..." <br>
-<a href="https://www.casefleet.com/timelines-case-timeline-software">Facts have a home, witnesses have a home, documents have a home. CaseFleet gives all of your case information a home.</a>
+<b>*Legislation Improvements are needed.</b><i>Cheer Up.</i> "The answer is that you're already building a chronology in each case..." <br>
+<a href="https://www.casefleet.com/timelines-case-timeline-software">"Facts have a home, witnesses have a home, documents have a home. CaseFleet gives all of your case information a home."</a>
 
-<i><b>*Legislation Improvements are needed, and having research is needed of the common problems of cases over Decades that prevent people in the Visual & Performing Arts from having a just legal system either outside or inside of court, related to a mixing of tactics that are not helpful, exploitative to disastrous.
+<i><b>Having assistance and knowledge is needed of the common problems of cases over Decades that prevent people in the Visual & Performing Arts from having a just legal system either outside or inside of court, related to a mixing of tactics that are not helpful, exploitative to disastrous.
 
 <b>Example of "Confidential" Magazine Documentary with Fixer Fred Otash:</b> 
 <br>

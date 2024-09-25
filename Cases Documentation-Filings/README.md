@@ -3,7 +3,7 @@
 
 <b>Legislation Improvements are needed... </b><i>Cheer Up...</i> "The answer is that you're already building a chronology in each case..." <br>
 <a href="https://www.casefleet.com/timelines-case-timeline-software"><b>"Facts have a home, witnesses have a home, documents have a home. CaseFleet gives all of your case information a home."</b></a>
-<br>See witnesses and film sequences below for perspectives
+<br>See witnesses and film sequences below for illustration
 
 <i><b>Having assistance and knowledge is needed of the common problems of cases over Decades that prevent people in the Visual & Performing Arts from having a just legal system either outside or inside of court, related to a mixing of tactics that are not helpful, exploitative to disastrous.
 

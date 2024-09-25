@@ -1,5 +1,9 @@
 ## Start to Documentations of Cases Related to the Arts
 <b></i>With improvements, this is a start for better assistance away from updates implicating the issues of the time.</i></b><br>
+
+The answer is that you're already building a chronology in each case... <br>
+<a href="https://www.casefleet.com/timelines-case-timeline-software">CaseFleet gives all of your case information a home. Facts have a home, witnesses have a home, documents have a home.<br>
+
 <br><i><b>*Legislation Improvements are needed, and having research is needed of the common problems of cases over Decades that prevent people in the Visual & Performing Arts from having a just legal system either outside or inside of court, related to a mixing of tactics that are not helpful, exploitative to disastrous.
 
 <b>Example of "Confidential" Magazine Documentary with Fixer Fred Otash:</b> 

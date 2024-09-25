@@ -1,5 +1,5 @@
 ## Start to Documentations of Cases Related to the Arts
-<b></i>With improvements, this is a start for better assistance away from updates implicating the issues of the time for better lives for people in the arts.</i></b><br> 
+<b></i>With improvements, this is a start for better assistance away from updates implicating the issues of the time for better lives for people in the arts.</i></b><br>
 
 <b>Legislation Improvements are needed... </b><i>Cheer Up...</i> "The answer is that you're already building a chronology in each case..." <br>
 <a href="https://www.casefleet.com/timelines-case-timeline-software"><b>"Facts have a home, witnesses have a home, documents have a home. CaseFleet gives all of your case information a home."</b></a>

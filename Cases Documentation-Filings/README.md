@@ -2,16 +2,16 @@
 <b></i>With improvements, this is a start for better assistance away from updates implicating the issues of the time for better lives for people in the arts.</i></b><br>
 
 <b>Legislation Improvements are needed... </b><i>Cheer Up.</i> "The answer is that you're already building a chronology in each case..." <br>
-<a href="https://www.casefleet.com/timelines-case-timeline-software">"Facts have a home, witnesses have a home, documents have a home. CaseFleet gives all of your case information a home."</a>
+<a href="https://www.casefleet.com/timelines-case-timeline-software"><b>"Facts have a home, witnesses have a home, documents have a home. CaseFleet gives all of your case information a home."</b></a>
 
 <i><b>Having assistance and knowledge is needed of the common problems of cases over Decades that prevent people in the Visual & Performing Arts from having a just legal system either outside or inside of court, related to a mixing of tactics that are not helpful, exploitative to disastrous.
+
+- <i>"The Price of LA" pilot TV show is an example speaking with a <b>Witness</b> while at a nightclub:</i>
+<br>[Watch the video](https://vimeo.com/311363928)
 
 <b>Example of "Confidential" Magazine Documentary with Fixer Fred Otash:</b> 
 <br>
 [![Confidential Documentary](https://img.youtube.com/vi/YW1yH-bTWi8/0.jpg)](https://youtu.be/YW1yH-bTWi8)
-
-- <i>"The Price of LA" pilot TV show for Buzz is an example speaking with a Witness while at a nightclub:</i>
-<br>[Watch the video](https://vimeo.com/311363928)
 
 Some interesting points when observing enablement, which can be profitable for enablers, <b>is that Witness Dennis Davern and 700 people petitioned to re-open the investigation</b> about Natalie Wood: https://www.cbsnews.com/news/natalie-wood-death-in-dark-water
 <br>

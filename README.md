@@ -2,6 +2,7 @@
 <h3>165 Cases Foundation in Film, Music, Arts of Victims/Witnesses (Visual & Performing Arts) to Improve Quality & Save Lives</h3>
 <b><i>Accessible Information for Better Servicing and Legislation in the Arts.</i></b>
 <br><b>Guides, Demonstrations, Documentations, and Analysis</b> including <b>Perspectives</b> in <i>"The Business."</i> </i><br> 
+Both Victims and Witnesses are Important! <br>
 
 - Filed Cases (Legal Filings, Lawsuits)<br>
 - Related Cases (Civil, Criminal, Witnesses Involved)<br>
@@ -11,7 +12,7 @@
 
 <i><b>Welcome!</b></i><br>
 <b>Needing <i>Better Quality, Access to Services, and Better Lives</i> in the Arts, 165 Cases are Listed as Foundations to the Present.</b> Since we're lacking quality assistance and legislation in California, in comparison to for instance, <a href="https://newyork.public.law/laws/n.y._penal_law_section_135.60">New York</a> Coercion Laws, <b><a href="https://theaccidentalgangster.com/about-us/">Countless</a></b> People have been harmed <i>Related</i> to the Arts.
-<br><i>In one Case alone, 500 people had to sue against Fixers in the <a href="https://www.hollywoodreporter.com/business/business-news/anthony-pellicano-wiretap-lawsuit-nears-562721/">2000s Onward</a>, without remedying the Elements of the coercive conduct used. Both Victims and Witnesses are Important! <b>The Elements are Given here to Help Change.</b>
+<br><i>In one Case alone, 500 people had to sue against Fixers in the <a href="https://www.hollywoodreporter.com/business/business-news/anthony-pellicano-wiretap-lawsuit-nears-562721/">2000s Onward</a>, without remedying the Elements of the coercive conduct used. <b>The Elements are Given here to Help Change.</b>
 <br>Films and cases are given for illustration. </i><br>
 
 <b>Starting Example of Cases:<br></b>

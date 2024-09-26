@@ -13,11 +13,9 @@
 [![Confidential Documentary](https://img.youtube.com/vi/YW1yH-bTWi8/0.jpg)](https://youtu.be/YW1yH-bTWi8)
 
 Some interesting points when observing enablement, which can be profitable for enablers, is that... <br>
+We hope to align California's laws to better safeguard the rights of victims and witnesses. In contrast, New York law provides clearer definitions of coercion, including protections against the fear of physical injury, property damage, and the withholding of testimony. It is inclusive of “or another will.”<br>
 - <i>"The Price of LA" pilot TV show is an example speaking with a <b>Witness</b> while at a nightclub:</i>
 <br>[Watch the video](https://vimeo.com/311363928)
-
-Some interesting points when observing enablement, which can be profitable for enablers, <b>is that Witness Dennis Davern and 700 people petitioned to re-open the investigation</b> about Natalie Wood: https://www.cbsnews.com/news/natalie-wood-death-in-dark-water
-<br>
 - <i>Watching Videos Analysis that Helps Victims/Survivors and Refutes Enablement at Eat Predators Inc is helpful: https://www.youtube.com/@eatpredators</i>
 
 It's important for correct and accessible records in these investigations.

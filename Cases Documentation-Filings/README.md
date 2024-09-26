@@ -7,10 +7,13 @@
 
 <i><b>Having assistance and knowledge is needed of the common problems of cases over Decades that prevent people in the Visual & Performing Arts from having a just legal system either outside or inside of court, related to a mixing of tactics that are not helpful, exploitative to disastrous.
 
+- <a href="https://www.cbsnews.com/news/natalie-wood-death-in-dark-water">4 Key Witnesses were "Found"</a> when <b>Witness</b> Dennis Davern and others re-opened the investigation about Natalie Wood.
+
 <b>Example of "Confidential" Magazine Documentary with Fixer Fred Otash:</b> 
 <br>
 [![Confidential Documentary](https://img.youtube.com/vi/YW1yH-bTWi8/0.jpg)](https://youtu.be/YW1yH-bTWi8)
 
+Some interesting points when observing enablement, which can be profitable for enablers, is that... <br>
 - <i>"The Price of LA" pilot TV show is an example speaking with a <b>Witness</b> while at a nightclub:</i>
 <br>[Watch the video](https://vimeo.com/311363928)
 

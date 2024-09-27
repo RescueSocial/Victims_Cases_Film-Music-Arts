@@ -4,6 +4,8 @@
 <br><b>Guides, Demonstrations, Documentations, and Analysis</b> including <b>Perspectives</b> in <i>"The Business."</i> </i><br> 
 - <i><b>Welcome - Golden Era Hollywood to PRESENT</b><br></i>
 
+- Needing Better Quality, Access to Services, and Better Lives in the Arts, 165 Cases are Listed as Foundations to the Present. Since we're lacking quality assistance and legislation in California, in comparison to for instance, New York Coercion Laws, Countless People have been harmed Related to the Arts.
+
 <center><img src="https://github.com/RescueSocialTech/Victims_Cases_Film-Music-Arts/blob/main/z- skyline new york city.jpg"></center>	
 <i>Optimistic Skyline for Cases Related to Film, Music, Arts<br></i>
 

@@ -8,17 +8,18 @@
 - Similar Cases<br>
  <i>(Golden Era Hollywood to PRESENT)</i> <br>
 
-<i><b>Optimistic Skyline for Cases Related to Film, Music, Arts</b><br></i>
-<center><img src="https://github.com/RescueSocialTech/Victims_Cases_Film-Music-Arts/blob/main/z- skyline new york city.jpg"></center>	
-
-## <i><b>Welcome</b></i><br>
 <b>Needing <i>Better Quality, Access to Services, and Better Lives</i> in the Arts, 165 Cases are Listed as Foundations to the Present.</b> Since we're lacking quality assistance and legislation in California, in comparison to for instance, <a href="https://newyork.public.law/laws/n.y._penal_law_section_135.60">New York</a> Coercion Laws, <b><a href="https://theaccidentalgangster.com/about-us/">Countless</a></b> People have been harmed <i>Related</i> to the Arts.
 <br><i>In one Case alone, 500 people had to sue against Fixers in the <a href="https://www.hollywoodreporter.com/business/business-news/anthony-pellicano-wiretap-lawsuit-nears-562721/">2000s Onward</a>, without remedying the Elements of the coercive conduct used. Both Victims and Witnesses are Important! <b>The Elements are Given here to Help Change.</b>
 <br>Films and cases are Given for illustration. </i><br>
 
+## <i><b>Welcome</b></i><br>
+
 <b>Starting Example of Cases:<br></b>
 - Investigated -	California -	1954 -	<i>Joe DiMaggio	Marilyn Monroe</i> -	Surveilled, <b>Strong Arming,</b> Break In	- 	<i>Barney Rudisky</i>	-		Film, Sports, Fixers					<br>	https://www.vanityfair.com/hollywood/2003/04/robert-harrison-confidential-magazine		
-- </b>Categories - Status	State	Year	Moving Party	Responding Party	Moving Actions	Responding Actions	Investigators Victim	Investigators Perpetrator	Lawyers Responding	Lawyers Moving	Arts Business Areas	Responding Arts Area	Moving Arts Area	Experts Victim	Experts Perpetrators	Videos	Links											
+- </b>Categories - Status	State	Year	Moving Party	Responding Party	Moving Actions	Responding Actions	Investigators Victim	Investigators Perpetrator	Lawyers Responding	Lawyers Moving	Arts Business Areas	Responding Arts Area	Moving Arts Area	Experts Victim	Experts Perpetrators	Videos	Links
+
+<i><b>Optimistic Skyline for Cases Related to Film, Music, Arts</b><br></i>
+<center><img src="https://github.com/RescueSocialTech/Victims_Cases_Film-Music-Arts/blob/main/z- skyline new york city.jpg"></center>												
 
 ## <i>Foundational Examples - As Many Cases as Possible with Categories</i>
 - <b>Starting <a href="https://www.vanityfair.com/hollywood/2003/04/robert-harrison-confidential-magazine">Example</a> with Elements - </b></b> Joe DiMaggio <i><b>used</b></i> a private eye to surveil and <i><b>strong-arm</b></i> Marilyn Monroe as divorce granted <b>(Overlapping Legal Claim)</b>… LAPD investigated a <b>foiled</b> burglary (by fixers)... (fixers) <b>Sold</b> the “wrong-door raid” story to Confidential magazine, where it appeared in the September 1955 issue… and, without suspects <i>[witnesses and evidence not in the story]</i>, the <b>case</b> faded.<br>

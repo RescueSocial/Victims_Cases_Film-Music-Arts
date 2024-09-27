@@ -2,6 +2,10 @@
 <h3>165 Cases Foundation in Film, Music, Arts of Victims/Witnesses (Visual & Performing Arts) to Improve Quality & Save Lives</h3>
 <b><i>Accessible Information for Better Servicing and Legislation in the Arts.</i></b>
 <br><b>Guides, Demonstrations, Documentations, and Analysis</b> including <b>Perspectives</b> in <i>"The Business."</i> </i><br> 
+
+<i><b>Optimistic Skyline for Cases Related to Film, Music, Arts</b><br></i>
+<center><img src="https://github.com/RescueSocialTech/Victims_Cases_Film-Music-Arts/blob/main/z- skyline new york city.jpg"></center>	
+
 - Filed Cases (Legal Filings, Lawsuits)<br>
 - Related Cases (Civil, Criminal, Witnesses Involved)<br>
 - Cases Not Litigated (Legal Letters, Social Impact, Strong-Arming, Fixers, Investigators, Others)<br>
@@ -16,10 +20,7 @@
 
 <b>Starting Example of Cases:<br></b>
 - Investigated -	California -	1954 -	<i>Joe DiMaggio	Marilyn Monroe</i> -	Surveilled, <b>Strong Arming,</b> Break In	- 	<i>Barney Rudisky</i>	-		Film, Sports, Fixers					<br>	https://www.vanityfair.com/hollywood/2003/04/robert-harrison-confidential-magazine		
-- </b>Categories - Status	State	Year	Moving Party	Responding Party	Moving Actions	Responding Actions	Investigators Victim	Investigators Perpetrator	Lawyers Responding	Lawyers Moving	Arts Business Areas	Responding Arts Area	Moving Arts Area	Experts Victim	Experts Perpetrators	Videos	Links
-
-<i><b>Optimistic Skyline for Cases Related to Film, Music, Arts</b><br></i>
-<center><img src="https://github.com/RescueSocialTech/Victims_Cases_Film-Music-Arts/blob/main/z- skyline new york city.jpg"></center>												
+- </b>Categories - Status	State	Year	Moving Party	Responding Party	Moving Actions	Responding Actions	Investigators Victim	Investigators Perpetrator	Lawyers Responding	Lawyers Moving	Arts Business Areas	Responding Arts Area	Moving Arts Area	Experts Victim	Experts Perpetrators	Videos	Links											
 
 ## <i>Foundational Examples - As Many Cases as Possible with Categories</i>
 - <b>Starting <a href="https://www.vanityfair.com/hollywood/2003/04/robert-harrison-confidential-magazine">Example</a> with Elements - </b></b> Joe DiMaggio <i><b>used</b></i> a private eye to surveil and <i><b>strong-arm</b></i> Marilyn Monroe as divorce granted <b>(Overlapping Legal Claim)</b>… LAPD investigated a <b>foiled</b> burglary (by fixers)... (fixers) <b>Sold</b> the “wrong-door raid” story to Confidential magazine, where it appeared in the September 1955 issue… and, without suspects <i>[witnesses and evidence not in the story]</i>, the <b>case</b> faded.<br>

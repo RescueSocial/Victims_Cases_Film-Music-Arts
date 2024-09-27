@@ -6,7 +6,7 @@
 <br><i>See witnesses and film sequences below for illustration</i>
 
 <i><b>Having assistance and knowledge is needed of the common problems of cases over Decades that prevent people in the Visual & Performing Arts from having a just legal system either outside or inside of court, related to a mixing of tactics that are not helpful, exploitative to disastrous.
--  When <b>Witness</b> Dennis Davern re-opened the investigation with others about Natalie Wood, <a href="https://www.cbsnews.com/news/natalie-wood-death-in-dark-water">Key Witnesses were "found."</a> 
+-  When <b>Witness</b> Dennis Davern re-opened the investigation with others about Natalie Wood, <a href="https://www.cbsnews.com/news/natalie-wood-death-in-dark-water">Key Witnesses were "found," able to testify.</a> 
 
 <b>Example of "Confidential" Magazine Documentary with Fixer Fred Otash:</b> 
 <br>

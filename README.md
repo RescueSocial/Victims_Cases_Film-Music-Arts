@@ -9,13 +9,13 @@
 <i>In one Case alone, 500 people had to sue against Fixers in the <a href="https://www.hollywoodreporter.com/business/business-news/anthony-pellicano-wiretap-lawsuit-nears-562721/">2000s Onward</a>, without remedying the Elements of the coercive conduct used.</i><br>
 <i>Films and cases are given for illustration.</i><br>
 
-<center><img src="https://github.com/RescueSocialTech/Victims_Cases_Film-Music-Arts/blob/main/z- skyline new york city.jpg"></center>	
-<i>Optimistic Skyline for Cases Related to Film, Music, Arts<br></i>
-
 - Filed Cases (Legal Filings, Lawsuits)<br>
 - Related Cases (Civil, Criminal, Witnesses Involved)<br>
 - Cases Not Litigated (Legal Letters, Social Impact, Strong-Arming, Fixers, Investigators, Others)<br>
 - Similar Cases<br>
+
+<center><img src="https://github.com/RescueSocialTech/Victims_Cases_Film-Music-Arts/blob/main/z- skyline new york city.jpg"></center>	
+<i>Optimistic Skyline for Cases Related to Film, Music, Arts<br></i>
 
 <b>Starting Example of Cases:<br></b>
 - Investigated -	California -	1954 -	<i>Joe DiMaggio	Marilyn Monroe</i> -	Surveilled, <b>Strong Arming,</b> Break In	- 	<i>Barney Rudisky</i>	-		Film, Sports, Fixers					<br>	https://www.vanityfair.com/hollywood/2003/04/robert-harrison-confidential-magazine		

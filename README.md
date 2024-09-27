@@ -5,9 +5,9 @@
 <i><b>Welcome... Golden Era Hollywood to PRESENT</b></i><br> 
 
 - <b>Needing <i>Better Quality, Access to Services, and Better Lives</i> in the Arts, 165 Cases are Listed as Foundations to the Present.</b> Since we're lacking quality assistance and legislation in California, in comparison to for instance, <a href="https://newyork.public.law/laws/n.y._penal_law_section_135.60">New York</a> Coercion Laws, <b><a href="https://theaccidentalgangster.com/about-us/">Countless</a></b> People have been harmed <i>Related</i> to the Arts.
-- Both Victims and Witnesses are Important! <b>The Elements are Given here to Help Change.</b>  <i>Films and cases are given for illustration.</i><br>
-<i>In one Case alone, 500 people had to sue against Fixers in the <a href="https://www.hollywoodreporter.com/business/business-news/anthony-pellicano-wiretap-lawsuit-nears-562721/">2000s Onward</a>, without remedying the Elements of the coercive conduct used.</i><br>
-<i>- Filed Cases (Legal Filings, Lawsuits)<br>
+- Both Victims and Witnesses are Important! <b>The Elements are Given here to Help Change.</b> <br>
+<i>In one Case alone, 500 people had to sue against Fixers in the <a href="https://www.hollywoodreporter.com/business/business-news/anthony-pellicano-wiretap-lawsuit-nears-562721/">2000s Onward</a>, without remedying the Elements of the coercive conduct used.</i>  <i>Films and cases are given for illustration.<br>
+- Filed Cases (Legal Filings, Lawsuits)<br>
 - Related Cases (Civil, Criminal, Witnesses Involved)<br>
 - Cases Not Litigated (Legal Letters, Social Impact, Strong-Arming, Fixers, Investigators, Others)<br>
 - Similar Cases<br></i>

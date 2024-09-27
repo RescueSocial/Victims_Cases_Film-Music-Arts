@@ -2,10 +2,10 @@
 <h3>165 Cases Foundation in Film, Music, Arts of Victims/Witnesses (Visual & Performing Arts) to Improve Quality & Save Lives</h3>
 <b><i>Accessible Information for Better Servicing and Legislation in the Arts.</i></b>
 <br><b>Guides, Demonstrations, Documentations, and Analysis</b> including <b>Perspectives</b> in <i>"The Business."</i> </i><br> 
+- <i><b>Welcome... Golden Era Hollywood to PRESENT</b></i><br>
 
 <b>Needing <i>Better Quality, Access to Services, and Better Lives</i> in the Arts, 165 Cases are Listed as Foundations to the Present.</b> Since we're lacking quality assistance and legislation in California, in comparison to for instance, <a href="https://newyork.public.law/laws/n.y._penal_law_section_135.60">New York</a> Coercion Laws, <b><a href="https://theaccidentalgangster.com/about-us/">Countless</a></b> People have been harmed <i>Related</i> to the Arts. Both Victims and Witnesses are Important! <b>The Elements are Given here to Help Change.</b><br>
 <i>Films and cases are given for illustration.</i><br>
-- <i><b>Welcome... Golden Era Hollywood to PRESENT</b></i><br>
 
 <center><img src="https://github.com/RescueSocialTech/Victims_Cases_Film-Music-Arts/blob/main/z- skyline new york city.jpg"></center>	
 <i>Optimistic Skyline for Cases Related to Film, Music, Arts<br></i>

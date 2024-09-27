@@ -8,11 +8,10 @@
 - Both Victims and Witnesses are Important! <b>The Elements are Given here to Help Change.</b><br>
 <i>In one Case alone, 500 people had to sue against Fixers in the <a href="https://www.hollywoodreporter.com/business/business-news/anthony-pellicano-wiretap-lawsuit-nears-562721/">2000s Onward</a>, without remedying the Elements of the coercive conduct used.</i><br>
 <i>Films and cases are given for illustration.</i><br>
-
-- Filed Cases (Legal Filings, Lawsuits)<br>
+<i>- Filed Cases (Legal Filings, Lawsuits)<br>
 - Related Cases (Civil, Criminal, Witnesses Involved)<br>
 - Cases Not Litigated (Legal Letters, Social Impact, Strong-Arming, Fixers, Investigators, Others)<br>
-- Similar Cases<br>
+- Similar Cases<br></i>
 
 <center><img src="https://github.com/RescueSocialTech/Victims_Cases_Film-Music-Arts/blob/main/z- skyline new york city.jpg"></center>	
 <i>Optimistic Skyline for Cases Related to Film, Music, Arts<br></i>

@@ -2,7 +2,7 @@
 <h3>165 Cases Foundation in Film, Music, Arts of Victims/Witnesses (Visual & Performing Arts) to Improve Quality & Save Lives</h3>
 <b><i>Accessible Information for Better Servicing and Legislation in the Arts.</i></b>
 <br><b>Guides, Demonstrations, Documentations, and Analysis</b> including <b>Perspectives</b> in <i>"The Business."</i> </i><br> 
-🦁 <i><b>Welcome... Golden Era Hollywood to PRESENT</b></i><br> 
+<i><b>Welcome... Golden Era Hollywood to PRESENT 🦁</b></i><br> 
 - Filed Cases (Legal Filings, Lawsuits)<br>
 - Related Cases (Civil, Criminal, Witnesses Involved)<br>
 - Cases Not Litigated (Legal Letters, Social Impact, Strong-Arming, Fixers, Investigators, Others)<br>

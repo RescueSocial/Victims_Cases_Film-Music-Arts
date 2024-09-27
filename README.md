@@ -10,7 +10,7 @@
 
 <b>Needing <i>Better Quality, Access to Services, and Better Lives</i> in the Arts, 165 Cases are Listed as Foundations to the Present.</b> Since we're lacking quality assistance and legislation in California, in comparison to for instance, <a href="https://newyork.public.law/laws/n.y._penal_law_section_135.60">New York</a> Coercion Laws, <b><a href="https://theaccidentalgangster.com/about-us/">Countless</a></b> People have been harmed <i>Related</i> to the Arts.
 <br><i>In one Case alone, 500 people had to sue against Fixers in the <a href="https://www.hollywoodreporter.com/business/business-news/anthony-pellicano-wiretap-lawsuit-nears-562721/">2000s Onward</a>, without remedying the Elements of the coercive conduct used. Both Victims and Witnesses are Important! <b>The Elements are Given here to Help Change.</b>
-<br> - Films and cases are Given for illustration.</i>🦁<br>
+<br></i>🦁<i> - Films and cases are Given for illustration.</i><br>
 
 <b>Starting Example of Cases:<br></b>
 - Investigated -	California -	1954 -	<i>Joe DiMaggio	Marilyn Monroe</i> -	Surveilled, <b>Strong Arming,</b> Break In	- 	<i>Barney Rudisky</i>	-		Film, Sports, Fixers					<br>	https://www.vanityfair.com/hollywood/2003/04/robert-harrison-confidential-magazine		
